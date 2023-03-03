@@ -124,3 +124,31 @@ He looked better, the last of his bandaged were gone, and he had gotten his haug
 Unsurprisingly, Severus had easily penetrated Vladmir's mind.
 He didn't expect any mental defense.
 After all, if he was as good an Occlumensas Filius had told him, the boy wouldn't have given in so easily.  
+
+Except instead of seeing the usual mess of thoughts and memories that most wizards and witches' minds were made of, Severus appeared in a library.
+It was perfectly in order, gigantic, and contained numerus traps, Severus was sure.
+It was the work of a Master...
+However, this piece of work was making him feel [nauséux].
+Severus, as a spy with a dark past, as a spy who saw and committed atrocities, understood the Ravenclaw's [mal-être].
+
+This undeniable masterpiece of Mind Arts was covere in blood.
+Books, floors, the shelves... everything was covered - probably fresh - blood.
+Severus got closer to a book and touched the cover, seeing his hand covered in red.
+Fresh indeed... it was obvious, since the memory of the fight was quite recent.
+
+"Mr Kemenov?" Severus called.
+He guessed that the library hid several rooms and was too big for him to even hope to find the boy on his own.
+
+"Here, Professor."
+
+Severus turned around and froze for a fraction of a second.
+He immediately got his thoughts back in order.
+Between two rows of shelves, a small, discreet door was open.
+Vladmir was standing inside it - or rather the Vladmir from that fateful fay.
+The Slavic clothes were ripped in several places.
+Blood was leaking from several cuts, probably thanks to cutting and dissection spells, considering the surgical precision of some of the wounds.
+One of the boy's legs seemed broken in several places and the flesh seemed [écrasée].
+However, the thing that had caught Severus's attention was his pupil's left arm, which was [pendre] lifelessly.
+The arm that had been in bandages for weeks.
+The sleeve showed a piece of burnt and naked flesh.
+Somebody had probably got the time to immobilise and torture the boy...
