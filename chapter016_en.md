@@ -101,4 +101,26 @@ Since when could Filius Flitwick seem as intimidating, sitting in his ridiculous
 
 The meeting had ended with ope threats from the two Russians against him, under the Ravenclaw Head's dark gaze.
 It was the first time Severus Snape felt uneasy looking into his colleague's typically Goblin black eyes.
- 
+Severus pinched the bridge of his nose and his lips together when he thought about an additional element.
+He tried drinking a new mouthful of alcohol before he realised his glass was empty.
+Filius Flitwick had talked with Vladmir Kemenov in Gobledegook to make sure Severus didn't hear part of their exchange.
+Filius Flitwick didn't flinch when feeling Katya Kemenov's Dark aura.
+Filius Flitwick didn't seem to mind the threats he had witnessed...
+As if all of this was completely normal.
+
+Severus Snape then understood that the small Goblin knew more than he let seem, and that he knew nothing of his past, or Goblin culture for that matter.
+
+Sighing, he put his glass back on his desk, straightened his robes, and looked at the time.
+He was supposed to meet Vladmir and Filius for the first session in less than an hour to help the Russian boy reconstruct his Occlumency defenses.
+He had been clear on one point: he would not be a therapist.
+That Pott... Kemenov went to Pomfrey of his Head of House for this, Severus didn't care, just not to him.
+As an incredibly helpful man, he would help close the pupil's mind, but that would be it, as surely as he was named Severus Snape!
+
+However, when he arrived in the boy's mind, Severus could tell that a bit of advice would be beneficial.
+As usual, he hadn't messed around and had barked at the student to have him sit down as soon as Severus had entered the office of the Ravenclaw Head of House.
+Vladmir Kemenov had obeyed.
+He looked better, the last of his bandaged were gone, and he had gotten his haughty and blank expression the Potions Master hated so much.
+
+Unsurprisingly, Severus had easily penetrated Vladmir's mind.
+He didn't expect any mental defense.
+After all, if he was as good an Occlumensas Filius had told him, the boy wouldn't have given in so easily.  
