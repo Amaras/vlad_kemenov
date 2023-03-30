@@ -152,3 +152,47 @@ However, the thing that had caught Severus's attention was his pupil's left arm,
 The arm that had been in bandages for weeks.
 The sleeve showed a piece of burnt and naked flesh.
 Somebody had probably got the time to immobilise and torture the boy...
+
+"Ignis decamatum..." Vladmir whispered, making the Professor jump.
+
+"It's..."
+
+"A torture spell created by french wizards to punish Inquisition monks in the 14th century."
+
+"I know the history," Severus Snape whispered back, feeling sick from hearing that an 11 year-old knew that spell. "I was going to say 'inhumane'."
+
+Vladmir looked at him with his emerald-green eyes, and Severus felt his heart drop once again seeing the emptiness and slight hint of madness behind the pupils he had inherited from his mother.
+He absolutely had to close this door.
+It was the cause of the boy's state of mind.
+It was the spot where Vladmir had tried to confine this memory.
+
+"May I?" the Potions Master asked calmly.
+
+Vladmir hesitated for a few seconds, before letting him access the memory.
+Severus caught glimpses of the memories and immediately stepped back, where he did not feel the emotions from the massacre.
+It was the only word that came to Severus's mind to decribe this.
+A massacre.
+
+"Do you know what needs to be done?" the older wizard asked sobrely.
+
+"Close the door."
+
+"Do you want to?"
+
+Vladmir jumped, and Severus knew he had spotted the crux of the issue.
+Vladmir was traumatised by the fight, but there was something that he did not want to let go.
+Something so important that he wanted to keep the memory alive, despite the trauma.
+Severus Snape actually did need to [jouer au psychologue].
+
+"From what I could see, you only defended yourself, Mr Kemenov.
+You don't have to feel guilty about anything."
+
+"I could not keep my promise..." the Russian boy murmurred, observing inside the room.
+
+Severus followed his gaze and saw a young child's corpse -probably 4 or 5- lying on the floor.
+Blood pooled around her head, staining her blond hair with a deep carmine.
+From the colour of her skin and the abnormal angles of her limbs, Severus knew she was dead.
+
+"She died suffering.
+I had promised I would protect her."
+
