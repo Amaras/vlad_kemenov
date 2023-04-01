@@ -1,0 +1,10 @@
+﻿Hagrid	Hagrid	
+Drago	Draco	
+Malefoy	Malfoy	
+Gryffondor	Gryffindor	
+Serpentard	Slytherin	
+Poufsouffle	Hufflepuff	
+Serdaigle	Ravenclaw	
+Poudlard	Hogwarts	
+Crockdur	Fang	
+Choixpeau	Sorting Hat	
