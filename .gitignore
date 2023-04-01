@@ -1,2 +1,8 @@
 *.swp
 *.swo
+
+*.odm
+*.db
+.~lock*
+*.bak
+*.epub
