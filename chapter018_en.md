@@ -137,3 +137,46 @@ The thick book glowed green before getting its neutral appearance afterwards.
 The Gryffinder frowned, but stayed silent.
 
 **"Welcome back in Russia, Heir-Prince Kemenov."** 
+
+While this happened, Neville observed the two men wearing dragon leather and combat cloaks who monitored the people arriving.
+Another Portkey brought a group of ten people into the rune circle and those ones were closely watched.
+
+On a sign of his friend, Neville looked back at the clerck and got his wand out himself.
+The book glowed with emerald green once again.
+
+"Welcome to Russia, Earl Longbottom.
+I hope your stay here will be enjoyable," the Russian man said with a thick Slavic accent.
+
+"What was that?" Neville asked once they go out of the room.
+
+"Routine checks.
+To come to Russia by Portkey or Apparition, you need to arrive in one of the Ministry's locations.
+They check our identity through our magical fingerprints to check we are indeed the wizards they are expecting.
+The circle of runes would have revealed a stowaway and the Aurors would have aprehended them."
+
+"Well, Russians aren't kidding with security.
+In England, anybody can create Portkeys as long as they are powerful enough, and there is definitely no control on international arrivals."
+
+Vladmir smiled discreetly and said that it was different in Russia.
+Every magical transportation way was monitored...
+Except if you called on the Miracle Court.
+However, Vladmir did not say this phrase in the middle of the Russian Ministry.
+He valued his life a bit too much for that...
+
+It was thus with a young English Pure-Blood in tow that Vladmir traversed the Russian Ministry's St-Petersburg location.
+He noticed the differences with the previous year, looking for the results of the collapse of the Muggle USSR.
+Apparently, nothing important changed with day-to-day operations.
+He still noticed the official decrees creating 15 Ministries associated with the new republics.
+His attention was focused on the independance decree of Ukraine, and wondered the impact it would have on the Mirazh.
+The Ukrainian branch of the Miracle Court had its territory on several other new republics...
+Vladmir stopped thinking about political things and focused back on his friend.
+
+After they walked through numerous corridors and halls, the two boys finally got out of the Ministry, and Neville was surprised to see they got out of a huge palace bordering a river.
+He looked back and, stunned, observed the bright yellow frontage on which two things shocked him.
+A large plaque was stamped with the official symbol of the Russian Ministry and cyrillic letters, and a flag was fluttering, looking like the ex-USSR one.
+Except on the red background the hammer was replaced with a wand, and the sickle with a curved sword.
+
+"It's a chachka," Vladmir declared, following his friend's gaze.
+"A traditional Circassian sabre, which has long been part of the Muggle military uniform."
+
+
