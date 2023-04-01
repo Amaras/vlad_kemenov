@@ -42,3 +42,33 @@ It's a hereditary _Wizarding_ trait," the Gryffindor insisted.
 "Everyone can learn it.
 It's a language like any other.
 However, it's indeed more difficult for people who don't have the gift."
+
+"You should avoid using Parsletongue in public," Neville declared after staying silent for a minute.
+"It's associated with Dark mages."
+
+"So if I..."
+
+Kevin fell silent and quickly lowered his sleeve on his wrist to hid the small viper.
+Hermione and Neville had time to catche a glimpse of the silvery shine from a bracelet bedore Draco arrived, accompanied by his Slytherin friends.
+
+"You are going directly to Russia?" Theodore asked with a smile, seeing the two trunks on the Hogwarts Express platform.
+
+"I am, my aunt got premission from the English Ministry for our departure through an international Portkey from the station."
+
+"For the better," Blaise nodded.
+"My mother thinks things will be agitated at King's Cross.
+Dumbledore is in probation and he's hanging on to his Headmaster title by a thread, which is not something some people like."
+
+Vlad simply shrugged.
+He did not care one bit, and Neville dicreetly smile, a smile that was nothing like the timid face he maintained, but was actually a mocking smile.
+Thinking about Albus Dumbledore made him remember the face he pulled the day after Quirell died.
+To find the cold corpse of a Death Eater and notice the disappearance of the Philosopher's Stone immediately threw the Professors into a panic.
+Fortunately, Sergei immediately left, taking the precious gem with him to give it back to its owner.
+They owed Draco a big favour.
+He admitted that he found the Stone randomly.
+He was leaning on an old mirror during their conversation with the Dark mage, and had looked at his reflexion, seeing himself with the Stone.
+He did not really pay attention to the significance of the image, until they got back to the library.
+
+"Your fiance is running towards you, Draco," Kevin calmly noted, sitting on Neville's trunk.
+Panic briefly shone inside the Malfoy heir's grey eyes, before he calmly turned towards the girl, who was escorted by two teenagers who were built like tanks, namely Crabbe and Goyle.
+The slight grimace on Draco's face evaded no one but the girl.
