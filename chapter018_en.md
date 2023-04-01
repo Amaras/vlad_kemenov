@@ -72,3 +72,27 @@ He did not really pay attention to the significance of the image, until they got
 "Your fiance is running towards you, Draco," Kevin calmly noted, sitting on Neville's trunk.
 Panic briefly shone inside the Malfoy heir's grey eyes, before he calmly turned towards the girl, who was escorted by two teenagers who were built like tanks, namely Crabbe and Goyle.
 The slight grimace on Draco's face evaded no one but the girl.
+Pansy Parkinson, a young girl with a square face and strong features, stopped right before him, simping to him after looking at his friends with contempt.
+It was true that, apart from the Slytherins, they were all wearing Muggle clothes, which was a strark contrast with the other students' wizarding outfits.
+
+"Dray, what are you doing with Mudbloods and Bloodtraitors?
+Come, I've gotten a cabin for us."
+
+Draco softly but firmly got his arm out fo Parkinson's talons, while Hermione frowned.
+The yound Muggle-born comptentuously observed the blonde act like a flirt. Eleven years old, and already acting like a prostitute, getting herself all over the young heir, Herione thought.
+
+"Tart," she whispered, making Kevin laugh mockingly.
+
+Neville, blushing to repress his laugh at his friend's remark, had put back his hesitant mask.
+His red cheeks looked like embarassement.
+Kevin, a sneer on his lips, was stroking his sleeve, under which Sasha was hissing with disgust, despite being in her bracelet form.
+
+`Let me bite the ssscornful, Kevin.
+Let me teach her mannersssss!` Sasha said, making even Vladmir sneer.
+The Russian boy was observing the young couple, sitting comfortably on his trunk.
+The Malfoy heir shook his head.
+
+"Sorry Pansy," he said with a smile that was opposite his words. "I promised my friends I would be with them."
+
+He pointed to the small Slytherin band with a cold smile, and tacitely ordered her to get back to the Hogwarts Express with her two bodyguards.
+He had to tell her he would see her during the journey to get some peace, however.
