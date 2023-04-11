@@ -251,3 +251,23 @@ Bloody Legilimens...
 And thus began Neville's and Vlad's holidays.
 The young English noble discovered the Kemenov palace, and the Russian wizarding traditions.
 A routine quickly developed, with the two boys' day split into three periods.
+
+Every morning, they worked.
+Vlad had Transfiguration classes with a severe but pedagogical vampire, as well as Occlumency classes, in which Nevill also took part.
+The young Gryffindor thus discovered a Dark Mage very different from English stereotypes: patient, careful, and most of all very knowledgeable on his subject.
+Grigori Rasputin was the best teacher on Mind Arts, and Neville's progress was meteoric, while Vlad was strenghening his mental barriers.
+
+After they studied, they relaxed.
+They spent the start of the afternoon sightseeing and relaxing.
+Neville discovered his best friend's country, as Vlad had done during the winter solstice holidays.
+The young Russian took his through the twists and turns of the wizarding streets of Saint-Petersburg, then Moscow's , and Neville never ceased to be surprised by colourful, friendly and lively places.
+The largest wizarding square in Saint-Petersberd was along one of the tributaries of the Neva.
+It rivaled London's Trafalgard Square in size.
+Vladmir also pointe him to the entryway of the Russian Ministry, where the same flag proudly floated, as well as Gringott's bank.
+However, nothing prepared him to discover a huge wizarding hall in the middle of the city, gathering herborists, apothicaries, artisans...
+
+The magical population was impressive for the young English noble.
+Many wizards and witches walking in the streers, as well as many magical creatures.
+
+Diagon Alley, as well as London side alleys where only humans walked, would seem very out of place here.
+The young Longbottom discoverd that Russia was a place heterogeneous and proud to be.
