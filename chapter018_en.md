@@ -179,4 +179,75 @@ Except on the red background the hammer was replaced with a wand, and the sickle
 "It's a chachka," Vladmir declared, following his friend's gaze.
 "A traditional Circassian sabre, which has long been part of the Muggle military uniform."
 
+"The aurors had some, didn't they?"
 
+"Indeed," Vlad smiled.
+"However, their blades are different: they are forged by goblins and reinforced with spells.
+Their chachkas can stop a hex and slice virtually everything."
+
+"And what's written there?"
+
+"Russian Ministry for Magic, federal district of Saint-Petersburg."
+
+"Federal district?"
+
+"That's the way the Russian state is organised," Vlad anwsered with a contrite smile, "it's a bit complicated to explain it to you right now.
+In any case, welcome to Russia!"
+
+Neville then really looked around him, and opened his eyes wide when he saw the beauty of the city.
+The quays around the Neva were full of people, and he suddenly understood why Vladmir had insisted that they wore Muggle clothes when he saw the tourist crowds around historical monuments.
+
+"Is that... the Winter Palace?" the yound Gryffindor asked, pointing at the huge palace on the other side of the river.
+"The Ministry for Magic is right in front of one of the biggest Muggle museums in the world?"
+
+"'Hidden in plain sight the wizard is, because what is obvious is overlooked'," Vladmir said with a smile, citing an old Russian wizarding proverb.
+"In Russia, we feel that we don't have to be hidden.
+Officially, the Saint-Petersburg Ministry is a famous hospital, and the Moscow Ministry's entryway is right in front of the Kremlin on the Red Square.
+It looks like an Opera.
+Muggles can enter it, but they will only see a typical concert hall."
+
+Vlad observed the surprised look on his friend's face, and wholeheartedly laughed when he embraced him and saluted him the traditional way.
+
+"**Welcome to Russia, comrade!**"
+
+Neville really blushed when he felt the sudden contact with Vlad, and let himself be pulled towards a pedestrian crossing to get to the other side of the avenue full of cars.
+
+"Do you know any Russian history?" Vladmir asked him playfully when he saw a tall man with a well-groomed beard nodding at him from the railing over the quays, his eyes hidden behind sunglasses.
+Besides him, a tall man with bushy hair and string features was talking with him, contemplating the Winter Palace.
+
+"The previous centuries, broadly, but basically nothing from the last fifty years..."
+
+The young Longbottom then saw the two strangers, noticing the strong stature and the paleness, as well as the rigid bearing of the first; and the dark aura from the second one.
+His doubts became certainties when he saw the first one lift his glasses to smile at them, showing two dark red eyes.
+The two men walked towards them, the crowd instinctively splitting to let them through.
+
+"Neville, let me introduce you to my great-great uncle, Nikolai Aleksnadrovitch Romanov, also known as Nikolai II of Russia; as well as his closest friend, the Dark Mage Grigori Yefimovitch Rasputin.
+Uuncle, Grigori, this is Neville Frank Longbottom."
+
+"Pleased to meet you boy," the Dark Mage declared with a charming voice.
+"We have heard a lot about you from Vlad."
+
+"I would like to say the same," Neville managed to say while giving his friend an unkind look, "but Vlad likes to keep a lot of secrets."
+
+The vampired chuckled and nodded.
+
+"We know, Neville.
+Vlad is quiet as a grave when it comes to certain topics."
+
+"Do you understand Russian?" Grigori Rasputin suddenly asked, observing the Longbottom Heir closely.
+
+"No sir," he replied, slightly tense.
+this man was a Dark Mage was of a very different temperament than the ones living in england.
+
+"I am a Dark Mage, Neville.
+However, I don't torture people, and I am not looking to conquer my country."
+
+The young Longbottom blushed slightly, before nodding his head and mentally apologising, making the Dark Mage smile.
+Bloody Legilimens...
+
+"I can teach you Occlumency, kid," Rasputin laughed.
+"You already have strong bases, and I think that in a few weeks, you could become excellent at it.
+
+And thus began Neville's and Vlad's holidays.
+The young English noble discovered the Kemenov palace, and the Russian wizarding traditions.
+A routine quickly developed, with the two boys' day split into three periods.
