@@ -271,3 +271,44 @@ Many wizards and witches walking in the streers, as well as many magical creatur
 
 Diagon Alley, as well as London side alleys where only humans walked, would seem very out of place here.
 The young Longbottom discoverd that Russia was a place heterogeneous and proud to be.
+When English wizards were secretive and racists, Russians were more open-minded and welcoming.
+Dozens of races freely rubbed shoulders in the wizarding spots.
+Neville saw numerous vampires and goblins, as well as rarer species that few English wizards could brag about seeing in a bar.
+Dwarves, usually living deep in their mines were walking in and out of Gringott's to barter.
+Veelas openly walked out in the streets, their face uncovered and their magic on low power.
+He even saw a dark elf, even if they were thought never to leave their forests, and a young korrigan, a distant cousins of the goblins.
+Neville then understood the solid knowledge of his friends on other magical creatures and realised how much the English society was retrograde and poor.
+
+The third and final moment of their day was the most fastidious and the longest for Neville.
+As a guest, he could not participate, only observe and listen.
+Even then, he thought he was fortunate enough to be able to assist Vladmir, only the tatoo on his arm and an Unbreakable Oath had allowed him to be tolerated at the meetings.
+Indeed, the last part of the day was about the internal affairs of Clan Kemenov.
+
+Not the family, the Clan.
+The corporation which brought together several wizarding families and a vampire clan, under the direction of Katya as the Kemenov matriarch.
+Clan Kemenov had an important weight in Occidental Russian politics and enonomy, and Vladmir, as heir to the noble and ancient Kemenov family, had many duties.
+Neville also suspected that his obligations were linked to the Mirage Court, but he was not initiated in the Eastern Europe branch, and considered himself lucky to know the truth.
+Thus, he attentively listened to the problems, talking with Vladmir about the events outside of meetings.
+He was starting to get his hopes up about a rehabilitation of the Underground, the English branch of the Mirage Court.
+
+The two holiday weeks were very instructive for Neville, and he left with a smile on his face.
+He was organising a surprise for Vladmir's birthday, with Katay's and Sergei's help.
+On July 31, the Russian's birthday, their whole friends group came together to the Lognbottom's before their departure to Estonia.
+Vladmir was taking part in the Summer flightracing event, and they would encourage him.
+
+Agusta Longbottom, happy to the joy on her grandson's face, had been very helpful.
+The old lady, despite some sharp remarks of her own, went to fetch Hermione and Kevin at their home, while Draco got there by Floo powder.
+Lucius Malfoy had flinched when he heard about the young Gryffindor's invitation, before his son, like the good Slytherin he was, pointed out Clan Kemenov's implication in the race.
+
+The four friends, chaperonned by Lady Longbottom, had taken a Portkey to Estonia.
+Nikolai was waiting for them and smiled when they appeated, and Neville, recognising the former Tsar, set off through a relatively dense crowd to get the the vampire.
+
+His friends and grandmother followed him while thousands of wizards and witches ammassed themselves along huge cliffs.
+Children played on mini-brooms, duly supervised by their parents.
+Acrobats were showing off marvellous magic tricks.
+Groups of wizards were talking, some wearing colourful and weird outfits.
+Everywhere, there were yells, and laughs, and joy all around.
+
+"Blimey!" Draco whispered, "it's as lively as a Quidditch World Cup!"
+
+"Races are very popular," Nikolai declared
