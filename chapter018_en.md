@@ -311,4 +311,74 @@ Everywhere, there were yells, and laughs, and joy all around.
 
 "Blimey!" Draco whispered, "it's as lively as a Quidditch World Cup!"
 
-"Races are very popular," Nikolai declared
+"Races are very popular," Nikolai declared, guiding the small group to the granstand.
+"There is still an hour left bedore it starts, however I think we should go the the stands now to get the best possible spots."
+
+"The stands?" Kevin asked, looking all around him to find them.
+
+Mrs. Longbottom smiled and pointed to the sky.
+They all looked up before gasping in delight.
+A hundred metres above them, three gigantic grandstands were floating in the sky, like veritable fortresses.
+Made out of a dark wood, they were brightened up with around twenty different emblems; they towered over the scenary.
+
+"Are those the racers' banners?"
+
+"Indeed", the vampire smiled and the group queued up for one of the flying carpets shuttling back and forth to the magical stands, under the captivated look of the two Muggle-borns.
+
+"Vlad's is the third one, isn't it? The one with gold, silver, carmine and black?"
+
+Nikolai looked at the small human girl with a renewed respect.
+Sergei was right, Hermione had a great potential.
+He observed the banners and smiled once again when he saw the red deer with silver antlers on a golden field with nine stars.
+A British Pure-Blood House...
+
+"I think you know another one."
+
+They all took some time to observe the other banners, and Draco nearly choked as Neville laughed.
+
+"*Weasley?* Weasleys are in the race?"
+
+"Only one of them... Charlie is a very good flightracer.
+I have never seen his family in assistance, so I don't think they know."
+
+"Charlie Weasley was Gryffindor's Seeker while at Hogwarts," Augusta Longbottom pensively said.
+
+"It's the position that's the closest to race conditions," Nikolai agreed.
+
+"I have not seen the Earl Weasley coat-of-arms in decades," the old lady continued with an emotional smile.
+"They look as great as ever."
+
+"They are _earls_?" Malfoy choked again.
+
+"You did not listen to your teacher, *heretem* Malfoy," Lady Longbottom said curtly.
+"The Weasley House may be poor, but their line traces back as far as your, and from what I can remember, they are linked to the Malfoy House three generations back."
+
+"Are all Pure-Blood Houses noble?" Hermione asked.
+
+"No," Kevin said, remembering a similar in the dungeons corridor at the start of the year.
+"However, virtually all of the most ancient ones are noble.
+If I remember correctly, Longbottoms are dukes and their heir is an Earl, the same thing applies for the Malfoys.
+Weasleys are earls, while their heir is a baron."
+
+"What about the Potters?"
+
+"Their House is one of the most ancient and msot prestigious ones.
+Only five Houses can trace their ancestries back to the time of Merlin himself.
+Those are the Bones, Prince, Nott, and Rowle Houses.
+They are all prince."
+
+"Prince?
+This title is reserved to the Royal Family, isn't it?" Hermione asked.
+
+"It isn't.
+It also applies to the descendants of the four knight-wizards of the Round Table."
+
+"There were wizards?"
+
+"Knight-wizards," Mrs. Longbottom declared.
+"It was a military order that was dissolved in the 12th century.
+Out of the hundreds of members, you know the names of three of them: Mordred, Galahad, and Tristan."
+
+"Tristan?" Draco pointed out, frowning.
+
+
