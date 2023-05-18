@@ -381,4 +381,47 @@ Out of the hundreds of members, you know the names of three of them: Mordred, Ga
 
 "Tristan?" Draco pointed out, frowning.
 
+"The hero from the Muggle tale *Tristan and Iseult*".
 
+"What about the fifth House?" Kevin asked as they embarked upon the flying carpet.
+
+"They descend from Artus, also known as Arthur Pendragon."
+
+"Which House...?"
+
+"That is a secret only known to the Five Families.
+I think it is lost to time," Augusta Longbottom answered with a smile.
+
+She gracefully stepped off the carpet, helped by Nikolai who had curteously offered her his arm, and they discoverd a beautiful, wild scenary.
+A long and steep cliff towered above the sea, waves crashing powerfully on the rocks.
+Far away, a river sprung from a dense forest, winding in mighty rapids before forming a great waterfall directly into the Baltic Sea.
+
+"What's the route?" Hermione asked, looking for delimitations.
+
+"It's part of the point.
+Nobody knows the path, not even the competitors.
+Arrows appear to point the right way when they get close enough.
+If a racers misses one of them, they lose time, and thus spots in the ranking.
+Furthermore, the arrows only appear during the first lap.
+Once the route is defined, the contestants may take shortcuts, although they must pass through checkpoints, which are signaled during the first lap."
+
+"It's..."
+
+"Technical and quick," Kevin marvelled.
+
+"... and dangerous," a known voice added.
+
+"Lady Kemenov," Agusta smiled and stood up to greet the young Lady.
+"It is a pleasure to see you again.
+How is your nephew?"
+
+"He is well and focused.
+It is his second event this summer, and he hopes to finish in the top 10."
+
+"And how are the bets?" the old Lady asked teasingly.
+
+"Going well," Katya smiled back, as she had just checked on the Mirage Court bookmakers, who were currently closing the bets.
+"The race is starting soon, you should probably get seated.
+Here..."
+
+Katya 
