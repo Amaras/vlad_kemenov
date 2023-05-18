@@ -424,4 +424,37 @@ It is his second event this summer, and he hopes to finish in the top 10."
 "The race is starting soon, you should probably get seated.
 Here..."
 
-Katya 
+Katya gave them several pairs of Omniculars and explained how they worked to the two Muggle-borns.
+
+"There!" Hermione suddenly yelled, "Vlad is here!"
+
+Indeed, the twenty races had just appeared, sitting on broomsticks that were sightly different from the ones used in Quidditch, with simpler and more aerodynamic lines.
+
+"Wow," Draco whispered, looking carefully at the brooms, "race Steas and Comets!"
+
+"How are they different from the usual Nimbus and Comets?" Kevin asked with a frown.
+
+"They are the world's fastests brooms!
+The finest in brooms," the Malefoy heir raved.
+"They are hyper-reactive and hyper-sensitive!
+In Quidditch, only Seekers use them, if at all."
+
+"Why, if they are so good?"
+
+"It's because they are only stable while flying ahead, not in a stationary position.
+Any other player plays upright, and the slightest movement can make a Stea swerve."
+
+"So Beaters and Chasers definitely should not play with those..." Hermione said, thinking about the jerky motions when they hit a Bludger.
+
+"Indeed..."
+
+They all looked at the grandstands, which were not at capacity, and at the participants while the host was starting to announce the racers.
+They all were wearing thick protecting gear, which somehow left their head and joints free to move.
+They also were equipped with a helmet and goggles.
+Furthermore, they all had their wands strapped to their wrist.
+
+Vladmir seemed like he was the youngest flightracer, and was hovering besides a tall, well-built ginger guy who the students recognised as Charlie.
+
+"The next one, you all know him!
+Please make some noise for Charlie Weasley!
+Undisputed Romanian champion, and three-time winner of the Summer Race!"
