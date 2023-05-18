@@ -458,3 +458,34 @@ Vladmir seemed like he was the youngest flightracer, and was hovering besides a 
 "The next one, you all know him!
 Please make some noise for Charlie Weasley!
 Undisputed Romanian champion, and three-time winner of the Summer Race!"
+
+A powerful ovation greeted him, and he waved back at them, a confidently bright smile on his face.
+
+"Besides him, the promission Vladmir Kemenov!
+Don't judge him on his age, this Russian star is Russia's junior champion, and today is his first day on the international stage!
+Well, it's gonna be a difficult event today, since the last racer is... Sven Mekisv, our very own Estonian flightracer!"
+
+Encouraging yells rang out as the Estonian wore a huge smile.
+He was on his own terrain, and naturally wished to win.
+
+And the race started.
+Vlamdir, focused, started at full speed, making sure to strategically place himself among the other racers.
+The first arrow appeared and they all swered in a perfect ensemble towards the cliffs.
+
+The young Russian rose slightly, and that was the right call since the new arrow to appear suddenly before them was scarlet contrary to the first one.
+A checkpoint... that was pointing down the cliffs.
+The racers who did not rise had problems to plunge and had to slow down, while Vlamdir sped down the length if the cliff, weaving through the rocks to stay at the maximum 5 meters off the ground the regulations allowed.
+The new arrow appeared and they straightened their course to the right, their toes just off the top of the waves.
+
+Vladmir was forcing himself to watch the sea as the sound of the waves crashing on the rocks was the only thing he could hear.
+However, he only saw at the last moment the wave forming below him, and he swore as he swerved towards the cliff.
+He could not hear the scream, but he saw from the corner of his eye one of the last racers get swallowed towards the seafloor.
+
+His inattentiveness got him afraid once again when he saw the new arrow at the last moment.
+It was pointing him to howver above the sea towards the little creek nearby.
+
+He took the opportunity to accelerate, betting on his reflexes to fork before the next arrow, and caught up to one of the flightracers ahead of him, who tried to block his way.
+Shamelessly, Vladmir lightly hit the back of the man's broom, which swerved vilently, allowing Vlad to pass him by.
+
+He hear a wear word and did a manoeuvre just in time to not get hit by the spell his opponent launched.
+
