@@ -487,5 +487,25 @@ It was pointing him to howver above the sea towards the little creek nearby.
 He took the opportunity to accelerate, betting on his reflexes to fork before the next arrow, and caught up to one of the flightracers ahead of him, who tried to block his way.
 Shamelessly, Vladmir lightly hit the back of the man's broom, which swerved vilently, allowing Vlad to pass him by.
 
-He hear a wear word and did a manoeuvre just in time to not get hit by the spell his opponent launched.
+He heard a swear word and did a manoeuvre just in time to not get hit by the spell his opponent launched.
 
+"But... he can't," Hermione yelled in the stands, while they witnessed Vladmir avoid the spells without losing any speed above the sea.
+
+"It's part of the game.
+Although generally it doesn't happen during the first lap."
+
+In the stands, the encouraging claps continued and they saw the racers turns once again twards a checkpoint.
+They were now flying to the waterfall and they rose up just above the water, as in a beautiful but dangerous aerial ballet.
+Vlad also cast a spell towards his persistant opponent, making him lose a few meters that brought Vlad out of his reach.
+
+They then went up the river rapids, slowing down to slalom safely between the huge rocks.
+Vladmir was currently in 7th place, and was waiting to see what would happen.
+Charlie, his friend and best rival, was holding 3rd place.
+He could catch a glimpse of his ginger hair.
+A new mark appeared and Vlad smiled when he saw that only three of the flightracers in front of him saw the second, smaller arrow. He suddenly veered towards the latter, and, after spending a few minutes flying between the trees, they arrived into a clearing.
+
+"Mekisv, Wyan-Xi, Weasley and Kemenov spotted the shortcut, they are now way ahead!" the commentator exclaimed, followed shortly by joyous cries from the spectators.
+"The Mediwizards just informed me that Pendjab is alive and will not suffer permanent consequences of his accident."
+
+Vlad pushed his broom to get more speed, as did all the racers, making the most out of the kilometer of empty space ahead.
+A fifth racer joined them, and they all followed each other through an unsaid agreement through the last zones of the forest.
