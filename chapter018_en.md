@@ -509,3 +509,24 @@ A new mark appeared and Vlad smiled when he saw that only three of the flightrac
 
 Vlad pushed his broom to get more speed, as did all the racers, making the most out of the kilometer of empty space ahead.
 A fifth racer joined them, and they all followed each other through an unsaid agreement through the last zones of the forest.
+The next arrow lead them to a magic bog and they dodged Dragon-Fires, flame geysers that were caused by the spontaneous deflagration of underground gases when it came into contact with the magic-saturated air.
+
+"Why don't they try to get first place?" Hermione asked.
+
+"It's strategy," Neville whispered.
+"They help each other in the most dangerous zones.
+The remaining two laps will be harsher on them.
+Here they are!"
+
+Indeed, dots sprang out of the tree cover and were accelerating towards the cliff.
+Their speed was phenomenal, and all the spectators stood up to see the blur the racers left in their wake.
+
+"Wyan-Xi is ahead in this first lap," the comentator yelled, "follwed by Mekisv, Weasley, Palei, Nokurawa, and, what a surprise, the young Kemenov!
+My friends, the leading group is firmly established!
+The strong trio of pursuers is not far from them.
+Vasquez, Gorgol and Danui have climbed in the ranking and try to catch up to the leaders.
+Their formation is excellent and very aerodynamix!
+Will they be able to maintain it?"
+
+Vlad had plunged on the cliffs and his friends finally saw the real talent of flightracers.
+While they had thought that the speed had been incredible until then, the sudden speeding up was insane.
