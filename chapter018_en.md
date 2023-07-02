@@ -530,3 +530,20 @@ Will they be able to maintain it?"
 
 Vlad had plunged on the cliffs and his friends finally saw the real talent of flightracers.
 While they had thought that the speed had been incredible until then, the sudden speeding up was insane.
+They were flying with a mix of learned technique and pure instinct, brilliantly turning sharply around the bends, barely missing the obstacles.
+At that speed, any impact could be fatal and the audience was staring at the giant screens that were covering the racers, and listening to the exalted commentary.
+
+One screen showed how a racer skimmed one of the trunks in the forrested area at the end of the second lap, and the mere touch made him swerve directly into a tree without any hope of recovery.
+Magic exploded and smoke rose above the trees, while the pictures disappeared.
+
+"Falcolm badly managed his turn, but his protections seem to have worked!" the commentator exclaimed, while two Mediwizards disappeared quickly.
+"Meanwhile, Palei and Nokurawa got into leader positions and are widening the gap with the pursuers.
+Oh what a surprise! The latter are organising and Mekisv is at the tip of the arrow!"
+
+Draco yelled with joy when he saw the sudden formation the pursuers, including Vlad, were got into.
+
+"Looks like an attack from Goldberg!"
+
+"The principle is the same," Katya nodded.
+"Mekisv is the fastest one, he's opening the way and drives his team-mates forward.
+The two on the wings are protecting the last one at the centre, who is not constrained by the wind.
