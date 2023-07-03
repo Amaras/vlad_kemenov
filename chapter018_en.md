@@ -547,3 +547,23 @@ Draco yelled with joy when he saw the sudden formation the pursuers, including V
 "The principle is the same," Katya nodded.
 "Mekisv is the fastest one, he's opening the way and drives his team-mates forward.
 The two on the wings are protecting the last one at the centre, who is not constrained by the wind.
+He's the one gaining the most speed and... here you go!"
+
+Under the crowd's cries, Mekisv, the tip, and Vlad, the centre, had just swapped their position and the group sped up even more, to the point that they were able to pass the two leaders.
+
+"Vlad just used the power he acquired without constraint to speed up the formation," Kevin cheered, "that's genious!"
+
+The third and final lap had just started and the six leaders began out rivaling each other in ingenuity and danger to outpace each other every step of the way.
+Spell were casr in the open spaces, but never hit harder than slowing down some racers.
+The shortcut in the forest was efficient once more and made the leaders split up, reducing their number to four.
+
+"Come on Vlad!" Hermione yelled, quickly followed buy her friends when the racers got to the final stretch.
+Every single one of them sped up as much as possible, trying to get first place.
+
+"And the winner is... Wyan-Xi, followed by Mekisv, Weasley, Kemenov, Nokurawa, Palei... Now's Gorgol, Danui, and Vasquez!"
+
+The last contestants passed the finish line and Vladmir flew directly to his family before jumping off in mid air to land inside his aunt's arms.
+Katya caught him with a big laugh to make him twirl in her arms.
+Vladmir then realised that his friends had seen him compete and smiled greatly.
+
+"Happy birthday Kitty," Katya laughed.
