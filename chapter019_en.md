@@ -1,0 +1,72 @@
+## Chapter 19: A hectic start of school year
+
+**"Freeze!"** Vlad yelled as he woke up with a start.
+
+Something was in his room.
+Something living and magical...
+He had let his instincts cast the spell without conscious thought.
+His eyes shone with mistrust, and he asked the Kemenov palace for some light as he slowly got up.
+The ancestral home had its own will, developped from the magical radiations of the numerous generations of wizards and witches in his family.
+Once the room was lit up, Vladmir observed his quarters with caution.
+There, in the middle of the big bedroom with pastel wall, lying on the Persian carpet decorated with the Kemenov and Potter coats-of-arms, a ouse elf was immobilised.
+
+Vladmir gritted his teeth, and prepared without any emotion a brutal sleeping spell on the frozen creature, while Sasha, was hissing threateningly on its skinny torso.
+
+"_No, Sasssha, leave thissss elf alone_", Vladmir hissed.
+
+He pointed his wand on the small creature, whose bulging eyes were rolling in terror.
+Vladmir knew that he looked terrifying when he had just woke up, especially with a start and angry.
+His eyes were nearly glowing with fury as his face was glacial.
+
+**"Stun,"** he groaned. "_Sassha, please watch him_"
+
+After his viper agreed and without even looking at the unconscious elf, he caught a black shirt nearby and got it over his grey silck night trousers.
+He did not take the time to button his shirt and briskly walked out of his room, wand in hand.
+
+He walked through the small drawing room in his quarters and crossed the hallway in the family aisle of the Kemenov palace.
+Without knoking, he enteres his aunt's domain, finding her unsurprisingly awake at 3 o'clock in the morning.
+Sometimes being insomniac was a good thing.
+
+**"Kitten?"** Katya asked, looking up from her book.
+
+**"I have a house elf in my room."**
+
+Katya rose up, not asking any more question.
+If Vlad had come to see her, it was because the elf was unknown and did not bear any coat-of-arms on his clothes.
+Every house elf that was attached t a wizarding family bore the insigna of his House.
+There were not many reasons why a servant did not wear the family livery.
+Either a sneak attack, or the servant was disobeying.
+In either case, it was not a good thing.
+
+She followed her nephew to his appartments and looked at the small unconscious being with a grimace.
+Sasha, on Vlad's order, calmly rolled around her friend's neck.
+
+The elf, wearing what seemed like an old pillowcase, had a suspicious smell and signs of abuse.
+His clayey skin was dull, which was one of the most distinctive symptoms in house elves.
+His ears being floppy were anither one.
+A healthy elf had a shiny skin and ears perked up on its head, often wearing bone jewelry that were typically elfic that proved their attechment to their family and they place in the house hierarchy.
+
+With an unspoken spell, the creature was bound and brought to the basements of the Kemenov palace.
+Several specific rooms had been created to be particularly efficient dungeons.
+Complex spells had been cast on them.
+No magic was possible, except when used by the members of the Kemenov family, meaning Vlad, Katya, and Sergei.
+
+The matriarch closed the door and woke up the small being, who fluttered its eyes, its huge and floppy ears were trembling as well.
+Then it seemed to become aware of its situation.
+It was lying on a table, the only furniture in the grey and sad room, under the cross fire of two frightening pairs of eyes.
+The dark irises of Katya were empty, as if no soul existed behind the facade, while Vlad's eyes were as cold as the Russian winter, shining with mistrust, a menacing snake slithering around its neck as if to protect him.
+
+"Well," Katya whispered. "Do you know who I am?"
+
+The elf wanted to speak, but no sound got out of its mouth, its eyes widening in panic.
+
+**"Vlad, get your mutism spell off."**
+
+Vladmir groaned, but he obeyed his aunt, waiving his hand carelessly.
+
+"Dobby did not want this," the elf said with its high and fearful voice. "Dobby wanted to meet the great Harry POtter!"
+
+This time, the Vlad seemed furious at the creature, and the house elf cowered as best it could, despite the ties that bound it.
+
+"Dobby apologises for angering Sir Harry Potter," Dobby said.
+"Bad Dobby, bad."

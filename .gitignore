@@ -6,3 +6,6 @@
 .~lock*
 *.bak
 *.epub
+
+# Obsidian vault
+story_notes/
