@@ -70,3 +70,25 @@ This time, the Vlad seemed furious at the creature, and the house elf cowered as
 
 "Dobby apologises for angering Sir Harry Potter," Dobby said.
 "Bad Dobby, bad."
+
+Katya observed the House elf injure itself by hitting its head on the stainless steel table for a few seconds, the sound bouncing back and forth inside the room gloomily.
+She eventually cast a pillowing spell on the surface.
+
+"What is the purpose of your presence?" Katya asked slowly.
+
+"Dobby... Dobby has comme to tell you... Dobby has comme to warn Harry Potter..."
+
+Vladmir's expression upon hearing that name was too much for the small creature which sobbed uncontrollably, but the boy did not care about it.
+As long as he did not know what the House elf wanted, he would not have any compassion for it.
+Especially since it wanted to talk with Harry Potter -- the icon -- and not himself, Vlad Kemenov.
+He loved his parents...
+But he hated his birth name that had been glorified horribly for politics and wizarding commerce.
+
+Both Kemenovs listened to the elf crying without showing any feeling for several long minutes.
+Then Vladmir, understanding that it would not stop soon, approached the elf.
+Dobby swallowed when he saw the boy leaning towards it, its big grey globulous eyes locking into the hypnotic green gaze.
+
+"You're going to tell me what you were doing in my room in the middle of the night", he whispered.
+You're also going to tell me how you managed to get through the palace's defences and which family you belong to."
+
+The elf's eyes widened in panic at the last demand, and it tried to get out of reach.
