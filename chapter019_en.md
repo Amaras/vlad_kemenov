@@ -92,3 +92,14 @@ Dobby swallowed when he saw the boy leaning towards it, its big grey globulous e
 You're also going to tell me how you managed to get through the palace's defences and which family you belong to."
 
 The elf's eyes widened in panic at the last demand, and it tried to get out of reach.
+
+"**Vlad, let me talk to it, it's terrorised**", Katya said, approching the elf herself.
+
+Vladmir could be particularly scary when he was crossed and tired.
+To be woken up in the middle of the night, without any coffee, by some stranger with dubious intentions, right in what her nephew considered his sanctuary...
+Of course, he was in a foul mood.
+Katya leaned over the House elf and observed it, noticing once again traces of abuse on the creature's olive-ish skin.
+
+"Why did you want to see Harry?" she asked softly.
+
+"Dobby... Harry Potter must not go back to Hogwarts," the House elf chocked at the sudden kidness he sensed in the Kemenov matriarch's voice.
