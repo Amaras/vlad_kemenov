@@ -103,3 +103,69 @@ Katya leaned over the House elf and observed it, noticing once again traces of a
 "Why did you want to see Harry?" she asked softly.
 
 "Dobby... Harry Potter must not go back to Hogwarts," the House elf chocked at the sudden kidness he sensed in the Kemenov matriarch's voice.
+
+"Why?"
+
+"He will be in grave danger"
+
+"Why?" Katya asked again calmly, eying her nephew who moved to the house elf's blindspot to avoid worsening Dobby's mood.
+
+"Terrifying events," Dobby murmurred, tremors going through his whole body.
+"Harry Potter is precious.
+Harry Potter must not put his life in peril!"
+
+"What events?" Vladmir asked.
+
+Dobby wriggled, trying to see Vlad, who stepped into the magical creature's field of view.
+
+"Provoked by whom?"
+
+Dobby groaned, terrified, and suddenly got out of Katya's grasp.
+It fell to the ground before the Kemenovs could react, and started hitting its forehead on the stone slabs on the ground.
+At the second hit, greyish blood flowed.
+
+"Bad Dobby... The Masters..."
+
+Katya wrenched it from the floor by its clothes and cast a spell on it to literally glue it on the metal table.
+She then crudely healed it, and the wound on its forehead stopped bleeding.
+
+"**Its masters are linked to Hogwarts' future problems,**" Vladmir groaned.
+
+"**I'm thinking the same thing,**" Katya nodded, looking at her nephew.
+His anger was tangible.
+His trouble happened, Vlad would make it a priority to protect his friends.
+
+"What events?" Vladmir repeated.
+
+"Dobby... can't...
+Dobby is under a contract...
+Dobby wanted to warn Harry Potter...
+The great Harry Potter must not go back to Hogwarts.
+The bad magic... It..."
+
+Vlad and Katya exchanged a dark look as the small elf sobbed again.
+They would not get anything more out of it.
+As with all the members of its race linked to a wizarding House or family, he had to keep its masters' secrets."
+
+"How do you enter the palace?" Vladmir asked slowly.
+
+"Debby..." the small creature squealed.
+
+Katya forwned when she heard the name of the young Kemenov House elf.
+Through the tears of the creature, the two Russians understood that they shared blood, as they were probably cousins, and that their magical signature were nearly identical.
+Dobby was able to get inside without any constraint.
+
+They left the room several hours later, sending Dobby back to its masters, but only after casting a few constraining charms on it.
+Vlad had had a twinge of sadness when he saw that the elf seemed shocked that he used Dark Magic, but he held his and his clan's safety as a priority.
+The creature could never tell of his link with Debby nor his ability to infiltrate the Kemenov palace with impunity.
+
+The sky was getting lighter when Vladmir got to his room and he sprawled on his bed, muttering.
+he was still sore from the Summer Race, and he had to get to the Kappa Quay to buy the last of his school supplies.
+
+"_You should not get back on the bed_", Sasha hissed softly while curling up on his collarbone.
+"_You will sleep again_..."
+
+Vlad made a scornful sound, but he listened to the small viper and got up, before disappearing for a fraction of a second into his walk-in wardrobe.
+He got back impeccably dressed with dark but refined clothes, made with a dark green fabric.
+His hair was left free for once and cascaded over his shoulders, only the strands falling over his eyes were held back by a silver clip.
+Tradition was that the heirs of great lines of wizards left their hair loose when they went out...
