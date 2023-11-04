@@ -169,3 +169,243 @@ Vlad made a scornful sound, but he listened to the small viper and got up, befor
 He got back impeccably dressed with dark but refined clothes, made with a dark green fabric.
 His hair was left free for once and cascaded over his shoulders, only the strands falling over his eyes were held back by a silver clip.
 Tradition was that the heirs of great lines of wizards left their hair loose when they went out...
+
+Vlad held out his hand and Sasha curled up around his wrist, transforming to look like a sliver bracelet.
+Thus Vladmir went back to the blue drawing room, one of the familial rooms, which were forbidden to all but the last remaining members of the Kemenov family.
+
+The Easter wing was Katya's and Vlad's, as well as their personal guests.
+Nobody was allowed in without express permission from a Kemenov.
+As huge as it was, the familial palace needed the room with its no less than 40 inhabitants.
+It stretched 6 floors and three wings surrounding a central space, and housed a few families affiliated with the clan, as well as guards and servants.
+They all resided in the southern wing, while the northern wing was used for the clan's business.
+The centrall hall was the reception spot; the ball room, reception rooms and library were located there.
+
+Katya was already present in the blue drawing room, reading a journal, a cup of black tea next to her. 
+Vlad took a newspaper from the thick pile that occupied half of the small table and sat in front of his aunt.
+
+"**Tea, Kitty?**", the matriarch asked without stopping her reading of an article of the _Red Dawn_, the Russian wizarding newspaper.
+
+"**Yes, please,**," Vlad answered while absent-mindedly reading over the headlines of the _Daily Prophet_.
+
+_Inauguration of the New Department of Wizarding Education_
+
+_Of the Importance of the Education of Young Witches and Wizards_
+
+_Gilderoy Lockhart Signing Session at Flourish and Blotts_
+
+"**Amelia Bones has sent you an invitation**"
+
+"**What does the Chief Warlock of the Wizengamot want with me?**" Vlad asked, surprised, without stopping his reading.
+He took no offence at his aunt being in the know.
+The head of the Department of Magical Law Enforcement had probably followed the Russian Wizarding etiquette, talking to the matriarch before contacting her heir.
+
+"**No idea.
+She wants to meet you during the winter holidays.**"
+
+"**I will accept when she contacts me,**" Vlad nodded.
+
+The two Kemenovs fell silent, absorbed by their readings.
+The young boy quickly read the headlines of _The Quibbler_, an English weekly publication; _La Voix de la République_, a French periodical; and _The Sorcerer Times_, directly imported from the United States, before he finished his cup of tea.
+
+"**Abkhazia declared its independance yesterday,**" Katya declared while sipping on her own beverage.
+
+Vladmir frowned.
+
+"**The Wizarding part or the Muggle part?**"
+
+Legitimate question when numerous provices of the former USSR regularly declared their independence and formed new republics.
+
+"**Muggle.
+However, according to my sources, the new leader is under an English coersion spell.
+The** _imperium_ **I think.**"
+
+"**What are the English interests in appropriating this part?**"
+
+"**Numerous deposits of Celestial Opals.**"
+
+Vladmir thought for a few seconds and grimaced.
+
+"**Death Eaters?**" he worried.
+
+It was obvious that the English Ministry for Magical was too incompetent in its current form to disersify its geopolitical control in other countries.
+Only powerful groups that were completely detached from the law could manage to use forbidded spells like the _imperium_.
+Vlad only knew two of those groups: the Death Eater movement, and the Order of the Phoenix.
+
+"**No.
+The same sources told me that it was linked to the Malfoy name, though.**"
+
+Vladmir closed his eyes while leaning back onto his seat.
+Malfoy.
+Lucius indeed had links to illegal networks.
+
+"**I thought the Underground was gone,**" he whispered while remembering Neville's words at the beginning of their first year.
+'_It's complicated_', he had said about the British branch of the Mirage Court.
+
+"**Officially it is,**" Katya declared.
+"**Two of the triads are dead and have never been replaced.
+Lucius Malfoy is the only survivor, and he prefered destroying the British branch from the inside.
+He acted when Voldemort was active, rather than putting it under the control of the dark mage like he would have wanted.**"
+
+"**So Malfoy Sr...**"
+
+"**Voldemort never know what role Lucius had.
+As one of the three Triads, he did what he could to prevent him from seizing the British networks.**"
+
+"**Draco doesn't know.**"
+
+Vladmir was certain of it.
+Draco probably didn't have the faintest idea of the real political and economic weight of his father.
+If Lucius Malfoy was the last of the ruling trio of the British mafia, he had more contacts than any simply Lord, were he Undersecretary of International Magical Cooperation and Death Eater.
+
+"**Who were the other two Triads?**" Vladmir asked with genuine curiosity.
+"**Maybe the Longbottoms...**"
+
+"**No, the other two Triads were Orion Black and Julius O'Summers.
+But you're not far off.
+Franck Longbottom was, as his mother before him, one of the best assassins of the Underground.
+I suspect Augusta is teaching her grandsone the ropes of being a hitman,**" she smiled.
+
+Vladmir smiled himself, amused.
+Indeed, Neville had all the abilities to be a good assassin.
+His cover had already been created and it was brilliant.
+He should speak with him about it when the school year started...
+And with Draco...
+
+His mind still thinking about it, Vladmir finished his preparation to buy the last remaining school supplies.
+He already had virtually everything, with the exception of a series of book for the Defence Against the Dark Arts course, as well as a few potions ingredients.
+Vladmir used the Floo network to get to _The Purple Mage_, one of the most popular bars on the Tsar Plaza.
+His arrival went unnoticed due to the usual agitation in the tavern, and he squeezed through the crowd to get out.
+
+The gloomy weather meant that fewer people that usual were out, and Vladmir pulled up the hood of his cape to protect himself from the persitent drizzle, as well as mask his face.
+He hoped that his favourite bookshop managed to order the books he needed.
+
+He followed the small river and walked up the alleys until he reached the calmer and darker neighbourhoods of the wizarding city.
+Under his cape, Vlad was not standing out from the other passers-by, and he quickly noticed the dimly lit front of _Words of Power_.
+The shop front was narrow, but in reality hid a huge library, and the entry bell rang clearly.
+The inside was totally different from what could be guessed from the exterior.
+The numerous shelves was perfectly clean, books and grimoires meticulously organised.
+Vladmir quickly went up the the Muggle section and easily found the last international treaties, before going to the Muggle litterature section.
+Katya asked him to get one of the original editions of the _Dell'arte della guerra_ essay from Machiavel that she had spotted in the shop.
+He also stopped in the rare grimoire section, and after a long hestitation, got a copy of the uncorrected first edition of _Blood Runes_.
+
+With the multiple books in hand, he walked to the counter and saw a thin woman with long, blonde hair, who was walking out of the shop.
+He frowned and observed her silhouette.
+He had already seen this woman...
+
+"**Mister Kemenov!**" a young, smiling woman sudden exclaimed.
+
+Vladmit saw that the unknown woman tensed up when she heard his name and hurriedly pulled up her hood further before exiting the shop.
+Thoughtful, Vlad turned back to face the owner of _Words of Power_.
+Her long, blond hair and pale skin was fascinating, and he knew perfectly not the stare into her purple eyes unless he wanted to be ensnared.
+After all, appearance wasn't everything, and you should be weary of centuries-old succubusses.
+
+"**Miss Jealing,**" Vladmir smiled as he bowed to her, "**did you receive my order?**"
+
+"**Of course, young man,**" Athena Jealing answered, before wrinkling her nose in disgust. "**Are you sure you want this rubbish?**"
+
+Vladmir grimaced slightly and nodded.
+
+"**Unfortunately, the author is my future Defence Against the Dark Arts teacher.**"
+
+
+The succubus snorted mockingly and took Vladmir's order and put it upon the already substential pile.
+She flicked her wand and the price glowed abov the books.
+Vlad took a fine purse bearing the Gringott's logo.
+
+"**Do you know the nme of the woman who just got out?**" Vladmir asked calmly as he put down several Galleons more than the asking price.
+
+The succubus plunged her purple gaze in Vlad's emerald one, as he raised his Occlumency barriers to the highest level possible to protect himself from the magical creature's attraction.
+He thus held the succubus's gaze and gave a cold smile when Jeaning extended her hand towards the gold.
+
+He put his palm over the Galleons to prevent her from getting them, and raised an eyebrowquestioningly.
+A tongue that was far too long to be human ran greedily over her lips.
+
+"**The English aristocracy sometimes come to seek occult tomes,**" Jealing whispered.
+
+Vladmir took back several coins from the stack.
+
+"**The** _old_ **aristocracy...**"
+
+The young Kemenov carelessly put several Galleons back into his purse, voluntarily letting the succubus catch glimpses of the golden shine.
+Cupidity was glowing harder in the magical creature's amethyst eyes.
+
+"**The servents if the snake lord are not many, Kemenov,**" whispered.
+"**The woman filled the silver cup with venom.
+Dark magic enslaves the husband as surely as does his own shame.**"
+
+Vladmir kept immobile for a few seconds as his perfectly ordered mind was looking for clues in the mysterious sentence.
+A blonde Death Eater who was the wife of Pure-Blood family patriarch...
+A patriarch with the Dark Mark who was not in prison...
+A man that is against Voldemort but can't affirm it...
+A silver cup...
+Vlad frowned, suddenly worried.
+One family had a coat-of-arms with a white cup on a dark field.
+One family that was suspected to be Death Eaters but was still free, and whose patriarch he knew had the Mark.
+A family whose matriarch was a blonde as the rest of her family...
+Malfoys.
+
+He gave Athena Jealing a correct amount and a smile, before shrinking the books and making them disappear in his cape's pocket.
+
+He left _Words of Power_ and got his wand out of his wrist holster.
+Vladmir hesitated for a few seconds, then he slashed his forearm bofore articulating some hoarse words.
+A trickle of Dark magic sprang from whis and connected to his splilled bood, and transformed into a small, foggy, opaque sphere that seemed to absorb light.
+
+"**Target: Narcissa Malfoy née Black, if present in Saint-Peterberg,**" Vlad whispered.
+The mist turned around and changed colours, becoming a silvery grey.
+
+"_You should tell Katya_," Shasha said, springing from his neck as the sphere was shivering, waiting for the last order to follow its target.
+Narcissa Malfoy was still in town, otherwise the sphere would not have changed colours.
+Vladmir hesitated, then nodded and invoked a magical note that he charmed to transmit the information to Katya.
+
+"**Fetch!**" he finally told the sphere, slashing his arm again, splashing drops of blood on the mist.
+It shivered again, then started to move, slowly at first, then increasingly faster, as Vladmir followed suit.
+He had just reach the Tsar Plaza when the sphere froze and became black again.
+
+Vlad bumped into a mother when he suddenly stopped, swearing out of spite.
+He attracted unfriendly glances from the small family, the mother and her daughter, as well as a few passers-by.
+Nobody asked what he was doing when he dismissed his black magical sphere, however.
+
+"**Please excuse me,**" Vladmir finally said, turning to the mother who was kneeling on the cobblestones.
+He noted the spilled fruits on the ground and kneeled as well to help her pick up the basket.
+She gave him a reproachful look.
+
+"**You have to be careful, son,**" she said as a small girl clung to her long skirt.
+Vladmir felt a pang in his heart when he saw the small, round face staring at him, worry in her big, blue eyes.
+The Russian woman, realising the young wizard was staring back at her daughter, observed his expressionless face.
+The boy was very pale.
+She then saw the coat-of-arms embroidered on the cape, and that made her jump, several fruits falling back on the ground.
+She gave him a saddened smile and slightly bowed her head.
+
+"**I am deeply sorry for your loss, heir Kemenov.
+The clan war that affected your family must have been terrible.**"
+
+She suspected why the young boy's eyes were visibly filled with sadness.
+The first ones to die were the children.
+Despite their instinctual magic, they were too weak to protect themselves, and the articles that came out after the attack on Clan Kemenov had told about a dozen dead children.
+She remembered seeing a photo that had made an impression on her.
+One showing a small girl smiling, one who looked somewhat like here daugter...
+
+Vladmir smiled back, still pale.
+
+"**Thank you...**"
+
+"**Navrina Felovna Dezovski.**"
+
+Vlamdir frowned when he heard the name of one of the main "light" families in Russia.
+If he remembered correctly, Navrina was the third and last daughter of 12 siblings, and her marriage to a firbolg had stirred controversy.
+
+Vladmir's gaze became colder when he thought about her hasband.
+
+"**Excuse my curiosity, but why didn't you take the Karzkern name?
+You are married, aren't you?**"
+
+The young Russian woman smiled, not yet realising that Vladmir became a menacing presence.
+
+"**My wife is stubborn, heir Kemenov,**" the newcommer said with a deep voice.
+Vladmir and Navrina stood back at the same time when a tall man with a pronounced beard walked towards her.
+The girl then left her mother's skirt to run directly in his arms.
+
+Vlamdir observed the man, whose simian features were now evident as he stood in front of him.
+The black gems incrusted into his skin were indicative of a high-ranking warrior.
+
+"**Warrior Karzkern,**" 
