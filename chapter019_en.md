@@ -408,4 +408,112 @@ The girl then left her mother's skirt to run directly in his arms.
 Vlamdir observed the man, whose simian features were now evident as he stood in front of him.
 The black gems incrusted into his skin were indicative of a high-ranking warrior.
 
-"**Warrior Karzkern,**" 
+"**Warrior Karzkern,**" he greeted him with a glacial voice, his face frozen in a sombre expression.
+
+"**Greetings, Heir Kemenov.
+I did not think I would be able to meet you some day.
+Lady Kemenov is very protective of you.**"
+
+Vladmir had a cold simle when he saw Karzkern imperceptibly pivot to protect his daughter from an unexpected attack.
+If Katya never allowed him to meet the man, it was because the firborg belonged to the Fedovir clan, an clan that was vying for a spot as a Mirage Court Triad.
+This automatically made him an enemy of his family...
+And what a shame he met him in the middle of a plaza and not in a dark alley, because Vladmir would have evicerated him if he could.
+Clan Fedovir was suspected of supporting the Goererine during the clan war.
+
+"**Hello Karz.**"
+
+Nikolai had just suddenly appeared behind Vlad, placing a protecting hand on his shoulder.
+
+The firborg recoiled from the vampire and gave his daughter back to Navrina, before asking them to wait for him in the closest tavern.
+At the same time, Sergei and a third member of the Kemenov clan appeared behind them.
+Navrina immediately took her daughter into her arms and placed herself behind her husband, worry perfectly visible on her delicate face.
+
+Vladmir observed the man for a few seconds, then shook his head.
+
+"**Leave him, it's niether the place, nor the time,**" he whispered, pointing to two aurors who were splitting the crows towards them.
+
+"**Remember one thing, Karzken,**" Fredrich, the third clan member, declared coldly, "**If we have any proof that you or your clan was involved in this winter's clan war, it will be eye for eye, tooth for totth.**"
+
+The look that the Kemenov clan member gave the firborg's daughter were explicit enough, and the young Russian woman was shaking, pressing her daughter against her.
+
+"**Is everything alright, Ma'am?**" an auror asked, placing himself between the two parties.
+
+"**Yes, officer,**" Navrina Dezovska said with a trembling voice.
+
+"**Please move along then,**" the second wizard replied, his hand on his sabre.
+
+---
+
+Vladmir was still ruminating this encounter the day after, leaning on a pillar next to the entryway of platform 9 3/4 of King's Cross station.
+Sergei was quietly sitting on a bench, and Katya could not make it, as she had an important meeting of the Mirage Court.
+
+"Vlad, Sergei!", Kevin's cheery voice exclaimed.
+
+"Hey boys!"
+
+"Hello everyone!"
+
+Vladmir smiled when his saw Kevin, Hermione, and Neville appear one after the other, each accompanied by their parents.
+Presumably, the two Muggle couples had already met each other before, as they were chatting amicably with Augusta Longbottom a little further.
+Sergei stood up to join them, while the friends affectionately greeted each other.
+
+"In any case, you were lucky," Neville exclaimed, observing Kevin and Hermione.
+"There are problems with the entryway.
+It's apparently stuck!"
+
+They all turned their gaze to the entryway.
+A family of redheads was wailing just outside the door, visibly seperated from some of their children.
+
+"Just how many brothers Ron has?" Kevin asked, surprised.
+
+"They are seven, if I remember correctly.
+William is the eldesr, and this is Ginerva's -- the youngest -- first year at Hogwarts."
+
+"Out of seven, the two oldest are interesting, as are the twins," Vlad noted with a smile.
+"I know neither Percy nor Giverva, however."
+
+"They have... peculiar names," Kevin whispered.
+
+"I'd say magical," Hermione responded with a laugh.
+"Charlie is not very original, though."
+
+"William, Charles, Percy, Fred, George, Ronald, and Ginerva," Neville declared.
+
+"I understand the nicknames," Kevin continued.
+
+"Do you think Draco is stuck as well?" Vladmir asked while observing the Weasley matriarch railing against a station employer, while her husband, a visibly tired balding man, was trying to calm her down.
+
+"I think.
+The Floo network is disrupted as well," Neville nodded.
+
+Vladmir grumbled, annoyed.
+He would have to wait to ask him the questions he wanted answers to.
+The Hogwarts-Express was thus pretty empty, and the trip went relatively smoothly, despit some pranks organised by two Gryffindors in the Slytherin compartments.
+
+Their arrival in Hogsmead was calm as well, and they smiled when they saw that the students who had missed the train were waiting for them on the station.
+They greeted Draco, who was chatting with Daphne, Blaise, and Theo, from afar before following the rest of the students.
+
+"Do you think that each year we'll get a new way to get to Hogwarts?" Kevin asked while observing the station plaza.
+"After the rowboats last year, what now?
+A dragon?"
+
+"Thestrals," Vlad answered, looking at the first carriages coming into view.
+
+"Thes-what?" Hermione asked, eyes full of curiosity.
+
+"Thestrals," Neville repeated, looking at the creatures as well.
+
+"There's nothing here," Kevin declared.
+"Only magical carriages."
+
+Vladmir raised an eyebrow and smiled.
+He walked up to pet the closest creature, and stroked the dark horse's bony hide.
+
+"I hope that you never see them," a young ginger girl wearing the Hufflepuff crest intervened.
+"Because that would mean that you had seen death."
+
+"Susan," Neville timidly greeted her.
+
+Vladmir, disctractedly stroking the thestral, carefully observed his friend, frowning.
+Why in Merlin's name did Neville seemed _really_ uneasy with the Hufflepuff?
+And above all... why was this girl he did not know was looking at him with... _anxiety_?
