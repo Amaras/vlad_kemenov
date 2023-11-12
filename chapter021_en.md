@@ -406,4 +406,259 @@ It was enough.
 The man took the quill, and quickly signed, yelping with pain when his signature was engraved in his hand.
 
 Vladmir and Kevin signed in turn, and the scroll immediately disappeared, magically sent to the Kemenov vaults in the Russian branch of Gringott's.
-Then, taking a vial of potion from his pocket, the Russian boy healed their wounds, before abandonning an overhelmed professor.
+Then, taking a vial of potion from his pocket, the Russian boy healed their wounds, before abandonning a devastated professor.
+
+As soon as they got out of the room, Kevin turned to his friend, smiling.
+
+"If he breaks the contract, would he die?"
+
+"He would lose his magic.
+However, such as brutal loss would not bode well for his survival, nobody get out unharmed from that."
+
+"Good...
+I don't think he realised how much your written words left numerous loopholes in your favour..."
+
+"Which ones?"
+
+"You cannot directly denounce him to the Irish Court...
+However, nothing prevents you from talking about him to Katya, who may transmit the information herself.
+And I am not cited in your sentence.
+_I_ could inform the Court of his name and location.
+He was scared and he was right," the Ravenclaw laughed.
+
+"You knwo Kev, I was not the one he was not afriad of."
+
+"Wha?" the respondant elegantly said, stopping in the corridor.
+
+"You terrified him.
+He was unable to remember you...
+By the way, you didn't give him his wand back."
+
+Kevin took the wand made out of a lighter wood from his own from his pocket, and smiled hile remembering somehting.
+
+"I read an article of the ancient laws...
+Every want taken from the hand of its wizard or witch becomes property of the attacker.
+I also kind of remember that only the wands of children under 17 have the Trace..."
+
+Vladmir smirked.
+His best friend was a shwred genious.
+Lockhart could not complain to then, nor to the Headmaster, because the old snooper would ask the reason for his attempted assault.
+And he could not talk about it, as per the magical contract.
+
+"Well, congratulations Kev, you've jsut earned a ne wand."
+
+The smal Ravencla put the new wand into the sleeve holster Vlad had offered him, and made his official one disappear in his uniform pocket, like most students did.
+At this moment, the bell rang to signal the end of the afternoon break.
+
+"What's up now?"
+
+"Potions."
+
+Kevin grumbled, but let himself be dragged to the dungeons in the castle basement, only to get out two hours later, even more demotivated.
+Snape was still not a good teacher, even if he had gotten better since the start of the year, and he had just asked them for a big presentation on the magical properties of ten plants.
+
+The two Ravenclaws were chatting with Terry and Mandy about the homework they had just gotten from the Potions master when Neville, who was waiting for them in the dungeons corridor enthusiastically waved at them to get their attention.
+
+"Hey Longbottom," Terry smiled.
+"Hermione's not here?"
+
+The Ravenclaws had gotten used to seeing both lions with Vlad and Kevin, who had be nicknamed the Gemini by their House, due to the bonds they had ressembling the ones between twins.
+They had also noticed the regular presence of a Slytherin, Draco Malfoy, prince of the second-years, no less.
+Contrary to the other Houses, Ravenclaw accepted this eclectic group relatively well, noting the radical changes, like Neville becoming more self-assured, Draco growing more tolerant, and Hermione and Kevin integrating themselves more to Wizarding customs...
+
+"No, she's helping Ronald with his Transfiguration homework," Neville smiled softly.
+"She's too kind with him."
+
+Mandy acquiesced sharply.
+
+"Totally agree!
+He spent half of last year calling her a know-it-all, and the other half asking her for help with his classes.
+If I were her, Weasley would have taken a slap way earlier!"
+
+Talking about Weasley, come Vlad, you've got to meet the twins!"
+
+"Absolutely not!" Lisa cried out, coming from behind the little group.
+The Ravenclaw girl shook her head, miming a false panic while holding Vlad and Kevin back by their arms.
+"They must not meet the twins!"
+
+"Why? Fred and George are..."
+
+"I think she's talking about the Ravenclaw twins," Terry said with a laugh.
+
+"You don't have twins in your House," Neville responded, confused, before following the knowing look of the Ravenclaws on Vladmir and Kevin.
+
+"Nooo! You?"
+
+The two of them exchanged amused glaces and shrugged at the same time.
+
+"I have no clue..."
+
+"... what they are talking about."
+
+"No!" Lisa whined while leaning hopelessly on Terry.
+"Now the Gemini are finishing each other's sentences.
+We're never going to get out of this one!"
+
+Vladmir and Kevin erupted in laughter, quickly followed by their friends and none of them saw the dark shadow approaching them.
+
+"I would like to know what a bunch of Ravenclaws and one Gryffindor are doing still in the dungeons at this hour..."
+
+The terse voice shut them up, and they apologised profusely in front of Snape, who had appeared behind them, before fleeing the dark place.
+They did not see Snape's dark, pensive gaze on the little band.
+
+Neville automatically got his two friends towards the Gryffindor common room, explaining to them that they had to meet the Weasley tins for their project.
+The two eagles, curious, followed him through half the castle to the lions' tower.
+They were slightly out of breath when they reach the portrait of a fat lady who sang horribly out of tune, until Neville whispered the password.
+
+When the portrait pivoted out of the way, leaving room to enter the lions' den, the two Ravenclaws discovered a warm, round room, decorated with the red and gold of their House.
+Numerous bean bags were layed down in front of a large chimney and then windows, while several study tables, some of which occupied already, were pushed against the walls.
+
+Fred and George Weasley were standing next to one of them, leaning over their brother and laughed wholeheartedly.
+Ronal was sitting in front of a tall pile of parchment, his face entirely red, visibly boiling wiht anger.
+It was probably due to the magnificent donkey ears that he had gotten.
+The three accomplices walked closer to hear the conversation.
+
+"Comme on Ronny, I am sure...
+
+"... you will be a perfect foal!"
+
+"Shut up Fred!" Ron groaned.
+
+Said Fred put a hand on his heart, hurt by his brother's comment.
+
+"Ronny, come one, I'm Fred. Forge!"
+
+"Indeed, my dear Greg, I am offended that boor can't tell us apart!
+And he supposedly is our brother?"
+
+"Just shut up, I'm working!"
+
+"And that is..."
+
+"... a day to remember."
+
+"My dear Hermione, if this absolute moron..."
+
+"... is troubling you..."
+
+"... please call us to the rescue!"
+
+"Yeah, we'll scare him off."
+
+Fred and George ended up on their knees in front of the young girl like two valiant knights who had just proclaimed their love, while Hermione was literally crying with laughter, holding her belly.
+Several other lions were laughing wholeheartedly at the twins' antics.
+
+"Let Ronald work some!" another readhead intervened, wearing his Prefect insigna on his robes.
+"Oi! what are you two doing in our common room?"
+
+The question immediately brought back the attention of the whole room on the two Ravenclaws lost in a read-and-gold wave, while Hermione waved at them while she wiped the tears from the corner of her eyes.
+Neville walked in front of his friends, to most Gryffindors' surprised, as they were used to the shy and clumsy boy.
+
+"I invited them, Percy.
+I wanted them to meet Fred and George."
+
+The Prefect dryly nodded and the twins came towards them.
+
+"The infamous Gemini from Ravenclaw," the taller of the two raved as he bowed to the two eagles.
+
+"We are delighted..." Kevin started.
+
+"... to meet the great..."
+
+"Weasley twins!"
+
+Fred had a small tear growing at the corner of his eye when witnessing the perfect coordination of their words, moved to see that they like like his twin brother and him, as VLad and Kevin both smirked.
+
+"And what do you want?"
+
+"We're working on mischief liquorice, or..."
+
+"We want to talk business," the Russian softly whispered so that nobody else heard them, especially not Prefect Percy.
+
+The two twins eyed Neville, who reassured them with a nod, and they brought both of them to their dormitories while continuing the discussion on mischief loqurice.
+It was a round room, like the common room, except that this room had a corner.
+Out of the seven beds of fourth-year Gryffindors, three were pushed into it.
+It as this way that the twins pushed them, and they discovered a camouflage spell protecting their corner.
+There was a whole mess: vials of suspicious substances were piled up upon grimoires, and an old cauldron was softly bubbling under the small window, orange smoke escaping through the opening.
+
+"Here, we won't be disturbed to talk.
+We have put up privacy spells," one of the read-heads reassured them.
+"By the way, since this is the first time we meet: I am Fred, the real one, and this is George."
+
+"Vlamdir and Kevin," Neville rapidly introduced them, even if they knew each other by name.
+
+"So you want to talk business?
+Who gave you our names?"
+
+"Yes, business talk, and Slytherins talk, you just have to listen," Vlad smiled, while the twins stayed serious in front of him, which was pretty rare.
+"I know you lead the school's smuggling network, and I come to propose a partneship."
+
+"What kind?" Fred asked, suspicious.
+
+"I am able to procure alcohol, tobacco and potions at market price.
+I don't do drugs, however."
+
+"I have a hard time believing you," George said slowly.
+"No vendor would accept selling at standard price to a minor."
+
+"No _official_ vendor," Vladmlir smiled again.
+
+"Assume we accept," George slowly declared after looking at his twin, both intrigued by his offer.
+"What would we gain, us as well as you?"
+
+"Lots of money...
+I know you sell the low-grade Fire-Whiskey at 20 Sickles a litre."
+
+The twins nodded, as it was the price they practices.
+As for Vlad's question on their buy-in price, they told him it was 15 Sickles, far from the usual 8 of Wizarding shops."
+
+"The litre is available at 5 Sickles with professional wholesalers, not taking Knuts into account.
+I can have it for that price, plus 10% for transport.
+With the same price, you'd pocket 15 Sickles.
+In case we have a agreement, I would ask you 33% of the profit, since we would be three associates, which would be 5 Sickles.
+You gain 10 Sickles per litre instead of 5 Currently.
+And it's only _one_ example."
+
+"What would would you be able to procure us?" Fred asked with unfeigned curiosity.
+
+"I said it already: nearly everything, including potion ingredients that are illegal in England, but legal in Russia for your little experiments.
+Everything except for drugs, whatever those are."
+
+"And apart from the financial part, what do you want?"
+
+Vladmir looked at the twin who just talked.
+They were not stupid, and they knew perfectly well that Vladmir was looking for something behind it all.
+
+"I am looking for two things, George.
+Your information about gossip, as well as all intelligence you have on staff, students, parents, everyone.
+And..."
+
+"And?"
+
+"Your talents as potions-makers."
+
+---
+
+Afterards, Vlad, sitting at the Ravenclaw table, was more than satisfied with his day.
+He knew the name of the person responsible for the future troubles in the school, he had built the start of the Hogwarts network, and he had put his hands into the smuggling system of the castle when the Weasley twins had accepted their partnership.
+
+He was thus chatting calmly with Luna about the new Quibbler article while finishing his molasses pie.
+Vlad was nonetheless relularly looking at Draco.
+The Slytherin, while surrounded by his friends, as still paler than usual, which worried Vlad.
+He was going to stand up and walk to him, when Albus Dumbledore's voice rang abover the general noise of the Great Hall.
+
+"Children, calm down please, it seems we have visitors!"
+
+All turned to the Great Hall door, where four men were standing, straight and proud, including one Russian Auror, and one English one, with his characteristic red robes.
+Vlad paled before taking a glacial face.
+What was Karzkern doing here?
+
+The young Russian stood up, furious that the firbord dared taking his Clan's business in the school.
+He could see Dumbledore's gaze stop on the mercenary insigna on engraved on the leather chesplate of the magical creature, then on the Russian Auror's sabre.
+
+"What are you doing here, Karzken?" Vladmir coldly asked, his voice echoing in the nearly silent room.
+
+The firborg had a frightening smile, showing teeth that were too pointy to be human, and turned to the professor's table.
+He announced with a powerful voice, gloating with satisfaction, why he came.
+
+"In the name of the Fedovir Clan, I, Boris Pietrovitch Karzkern, challenge Vladmir Vassilievitch Kemenov, heir to the Kemenov Clan, Lord Potter, according to the ancient duelling laws of the Russian Empire."
