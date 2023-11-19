@@ -237,4 +237,69 @@ Argus, come."
 The caretaker delicately took his petrified cat into his arms and softly petted her fur, whispering soft words to her.
 Tears rolled down his chisled cheeks, and he was sniffing sadly.
 
-"Headmaster, if you wish, my office is jsut nearby," Lockhart intervened.
+"Headmaster, if you wish, my office is just nearby," Lockhart intervened.
+
+Albus Dumbledore slowly nodded, refusing to take his eyes off of the few youngsters in front of him.
+Questions turned in his head.
+The display of Dark Magic from the young Russian, his getting mixed with the young Malfoy...
+Was he a future Dark Lord?
+The memory of the detection of a Dark Magic spell from the prvious year got back in his min.
+Was he responsible for it?
+And could it be that those children were responsible for the disappearance of the Philosopher's Stone?
+Nicolas had publicly broken their friendship when learning about the gem's disappearance, increasing his decline.
+Between them five, still as close despite his best effors, Dumbledore had to admit they would form a fearsome group...
+
+The old wizard froawed, and for the greater good, tried to penetrate Draco Malfoy's mind.
+He immediately got in front of thick stone walls, identical to the ones of his family's manor, that he did not try to cross.
+The rumours on the defenses of the Malfoy home were frigthening, and if the young Draco was inspired by those...
+Turning to Neville Longbottom, he stood in front of a thick gate covered in black thorns dripping in an unhealthy fluid, probably poison, protecting a sublime glass greenhouse.
+Dumbledore tried every side, bud he did not dare try the threatening spines, knowing full well that this poison could kill him as surely as any real poison would.
+He then tried to search in the young Hermione's Granger mind.
+The image of a library made him back off immediately, the memory of the young Kemenov's shields still burned in his mind.
+He thus turned to the last, the young Ravenclaw, and projected in his mind.
+
+"GET OUT OF MY MIND IMMEDIATELY!"
+
+Albus was brutally thrown back as Kevin pointed his wand on the Hogwarts' Headmaster.
+
+"Mister Entwhistle, 50 point for aggressing..." the Head of Gryffindor House began, offended.
+
+"Wait, Minerva," the Potions Professor cut her with a silken and threatening voice.
+"'Get out'?"
+
+"I may be a Muggle-Born," Kevin responded without lowering his wand or taking his eyes off of Dumbledore, whose face was as pale as his beard.
+"But I know the law.
+Usage of Legilimency is forbidden on children.
+Deduct House points from me for defending my freedom as a magical citizen, and I will sue both the Headmaster and the school."
+
+Severus Snape rose a sarcastic eyebrow towards the Head of Gryffindor, and mentally smiled as he noticed the high port of the two Muggle-Borns.
+Did he not know their ancestry, he would swear he was in front of Pure-Blood heirs, both by their manners and their power.
+The young Entwhistle's friends had not taken their wand out, but they all stood behind him, confident and slightly threatening.
+Judging by his memory og the duel, the Potions Master knew that Kemenov's wand would be in his hand way before his colleagues could do anything.
+
+A threatening mumble in the Goblins' rough language took him out of his thought bubble.
+Besides him, Filius was fuming, and the Potions Master knew that only the presence of the pupils prevented him from hollering at the Headmaster.
+Legilimency was the worst violation of personal privacy, especially on the students they were tasked with protecting.
+Flitwick always took his responsibilities very seriously.
+
+"In Lockhart's office," the Headmaster said, regaining some composure.
+The five children obeyed, and entered after the broken down caretaker and the Defence Agains the Dark Arts professor.
+Except none of them directly turned their back to the other professors...
+
+"Your wands," Albus continued, reaching out with his hand.
+
+"To know if we cast a specific spell?" Kevin sarcastically asked.
+"With all due respect Sir, and know that it has grown very thin, I refuse to give you my wand.
+Professor Flitwck?"
+
+"Yes, Mister Entwhistle, I perfectly understand your weariness."
+
+The short Goblin looked daggers at the Headmaster while talking, and took the young boy's wand.
+He cast a _pures prior incanta_, showing several second-year spells.
+The young Ravenclaw had used Lockhart's wand instead, making his spells undetectable, something only Vlad knew.
+The Head of Ravenclaw did the same with the other two students presents where the incident happened, and Vladmir's and Neville's wands visibly alerted Dumbledore.
+
+"Mister Kemenov, you have used three abnormal spells!"
+
+"Becase you consider Dark Magic abnormal, Sir?
+I'm Russian."
