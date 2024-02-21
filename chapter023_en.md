@@ -531,3 +531,57 @@ We thus started to look over her from afar."
 "She arrived to tonight's meal very perturbed, nearly crying," Fred finished.
 
 "Just before we discovered the writing," Hermione whispered, pensive.
+
+"So, tell me if I'm wrong," Draco said, sitting down on Hermione's left,"your sister's behaviour drastically changed, and she isolates herself.
+Does she keep something new or unusual?
+Jewelry, clothes...?"
+
+The twins exchanged sombre glances, and Draco knew he was right.
+
+"Yes, she does, Ginney has a diary on which she writes a lot," George whispered.
+"She told us someone gave it to her."
+
+"Who?" Vlad asked.
+
+"She refused to tell us," Fred sighed.
+
+"Draco, Vlad, any idea?" Neville asked them.
+
+"I'll bet my wand it's a possession," Vladmir explained.
+"Was the journal the Dark magic artefact Narcissa Malfoy smuggled into the school?"
+Draco was asking himself the same question, worried.
+
+"Yes, the diary must be the catalyst.
+If we take it from her, she should get better.
+The risk is that the new holder could get possessed in turn."
+
+"Fred, George, can you get the journal?"
+
+"Of course," Fred smiled.
+"She must let it got at night!"
+
+"What about the stairs?"
+
+"Come one, Mione!
+You bet that the stairs will not prevent us from geting into the girls' dormitories," George chuckled, his face going back to its usual expression now that the twins knew other people believed them.
+
+"I prefer not to know what you have done in our dorms," Hermione grumbled.
+
+"You know, Hermione, the girls' dormitories in Slytherin are open to the boys, provided they get one girl's approval."
+
+"Same in Ravenclaw," Kevin smiled.
+"Which makes me think that Gryffindors are perverts!"
+
+The twins loudly protested, but they were relieved.
+Their own family did not believe them, but them...
+This strange, small, united and dangerous group were taking their fears in consideration...
+
+"Guys!
+Don't let any bare skin touch the diary, not while we don't know how it took possession of your sister."
+
+The twins nodded at Vladmir's warning, and they were going to leave the room when Kevin called them.
+Fred's excellent reflexes honed by years of Quidditch practice allowed him to catch the small cloth bag the Muggle-Born had thrown at him.
+A clink of glass rang out, and hen the redhead opened the flap, an amused smile appeared on his lips.
+The ingredients Vlad had promised were lined up neatly in perfectly labeled vials.
+
+"Now... what exactly happened in this corridor?" Hermione asked when the twins closed the door behing thme, staring at the three of them.
