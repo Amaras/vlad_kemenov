@@ -303,3 +303,231 @@ The Head of Ravenclaw did the same with the other two students presents where th
 
 "Becase you consider Dark Magic abnormal, Sir?
 I'm Russian."
+
+With this last sentense, Vladmir had just took the wind out of the Headmaster's sails.
+As it was clearly explained prior to the duel, the Russian could not be blamed for his use of Dark Magic, as long as it did not endanger his fellow students' lives.
+Dumbledore immediately attacked the use of motion detection spells by Neville adn Vladmir.
+
+"We were talking about things concerning only us," Kevin intervened with an innocent smile.
+
+"What..."
+
+"It is about our privacy, Sir, which concerns only us," the young Ravenclaw slowly repeated, as if he was talking to a senile person, a sweet smile on his face.
+"It seems you don't know this concept, though.
+After all, using Legilimency on your students is the worst possible violation."
+
+Severus Snape, fascinated, observed the young Ravenclaw skillfully put the Headmaster in his place, then the battle of wills between the students and the Headmaster, until...
+
+"Headmaster, I think Mr Flich needs you help," Hermione softly said, pointing at the caretaker who was silently crying, cradling his cat against him.
+
+"She is alive, Mr Flich," Kevin softly said, empathising with the old Squib's grief.
+
+The caretaker raised his head, hope shining in his eyes.
+It was enough for Albus Dumbledore to regain sight of his reponsibilities and especially his priorities, and he started to examine the small cat.
+He put her down onto one of the classe's desks, and he cast several complex spells.
+
+"It's probably a... nevermind..."
+
+Only Flitwick and Snape saw Kevin looking daggers at the Defence Aginas the Dark Arts professors.
+It was enough to shut him up, and to their surprise, they saw Lockhart bow and literally cower in a corner of the room, carefully watched by the Muggle-Born.
+
+"How to you know Mrs. Norris is alive?" Dumbledore enventually asked, standing up.
+
+"Muggle technique," Kevin sarcastially answered.
+"Her heart is beating, you can hear her pulse."
+
+"Mr. Entwhistle is right, Argus, she is not dead," the old wizard continued.
+"She was petrified, although I don't know how."
+
+"Ask Kemenov!" the caretaker whispered, pointing at Vladmir.
+"He's a Dark mage."
+
+"I contest your affirmation," the Russian calmly said in response, tired to have been insulted dor weeks.
+"And to answer your questino in advance, Headmaster, we were talking about personal things, and we did not pay attention to our destination, until we arrived in the corridor."
+
+"We immediately checke if Mrs. Norris was alive, and..." Kevin continued.
+
+"... we immediately checked to see if the blood was human, hence the Dark spell..." Neville added.
+
+"... if it had been human blood, the volume was too great to be harmless, and we would have ran to the Great Hall to tell a Professor..." Vladmir agreed.
+
+"... which we were going to do anyway, until the students arrived before we could move," Kevin concluded.
+
+"I think Mister Kemenov and his friends were at the wrong place, at the wrong time," Snape said with a sneer.
+He had heard about about the Gemini and their exasperating talent to finish each other's sentences, but the young Longbottom did not seem to be outdone when it came to being a perfect match with the Ravenclaws.
+
+"Furthermore, we know that on a Halloween evening, Mr. Kemenov is not keen on parties."
+
+Dumbledore seemed to think for a few seconds about the declaration of the Head of Ravenclaw, then nodded.
+He had been given a heads up that Vladmir would not be in the next day's class for family reasons, and he had learned that we went on his parents' tombs each year for the Day of the Dead, the day after Halloween.
+
+"Innocent until proven guilty," Flitwick assured.
+
+"My cat... I demand a punishment against those... those..."
+
+"Argus, enough," Dumbledore cut him.
+"You five can go," he told the students.
+
+The small group did not need to be told twice, and quickly walked out of Lockhart's office.
+They hurriedly left the premices, and as Kevin was taking out his secret wand to cast a discretion spell, someone hailed them.
+
+"Wait a moment, young people!"
+
+"Professor Snape, Prfessor Flitwick," Vladmir greeted them, observing the Potions Master approach them, followed by the short Goblin who was jogg to keep up with the large strides of the dark man.
+
+"If you agree to follow us to Professor Flitwick's office..."
+
+Severus Snape's suggestion sounded more like an order, as he observed Neville, who was usually shy, look into his eyes without fear.
+
+"I am sorry sir, but we have not eaten yet, and we were planning on getting to our common room to grab some bite..."
+
+The two professors carefully looked at the small group of students who, like in front of the Headmaster, put up a united front.
+A loud gurgling noise suddenly rang out, and Kevin blushed, putting a hand on his stomach.
+
+"I see you keep your priorities straight," Snape with a micro-smile, as Kevin's friends softly mocked him.
+"I want to tell you that if you need help with your Occlumency barriers, by office is open to you."
+
+"What..."
+
+"I am not an idiot," Professor Snape cut softly, looking at his Slytherin.
+"If Mr. Entwhistle has detected the attack from the Headmaster, one of the best Legilimens of our country, when he did not know the magical world until two years ago, then youmust have secrrets more important than you let out.
+Mr. Kemenov knows that you can trust me, as does Professor Flitwick."
+
+The students slowly nodded and were going to walk away, when the Potions Master added something else.
+
+"I am pleasantly surprised to see you openly show your friendship in front of the whole school, Mr. Malfoy.
+Your father will be proud of you.
+The whole House supports you."
+
+Draco only showed his surprised by slightly opening his eyes more, and he watched his Head of House turn with a theatrical cape flight.
+
+"I tell you, he practiced for months to get this result!" Kevin said.
+
+
+"I admit it's impressive," Neville exclaimed as the professors were walking away in the corridor, not aware that they still heard them.
+Severus Snape sneered, and decided taht he liked Longbottom, despite his legendary incompetence in Potions.
+
+"I think he likes you," Vladmir mocked him, looking at the disappearing dark robes.
+
+You ddi not see him looking dagger during Potions class," Hermione said with a smile.
+"Now, what really happened?"
+
+Draco nodded, worried.
+
+"Not here, the Alliance room," Neville whispered, before leading them to a small spiral staircase half hidden behind an armor stand.
+They quickly climbed upstairs, and Hermione released the tapestry hiding the exit, after having checked the corridor.
+
+"Well, Hermione, I did not know..."
+
+"... you knew secret passages..."
+
+The five members of the Alliance pivoted synchroneously, their wands pointed towards the Weasley twins, who had just stepped out of the shadows.
+However, they did not have their usual smile, but a thoughfull look.
+
+"We need to talk," Fred slowly declared while walking towards them.
+"Seriously."
+
+"A magical Vow," Draco immediately replied.
+
+Vladmir slowly nodded, looking at the other three members of the smal group.
+They had already discussed the possibility of letting the twins join the Alliance.
+They were already entwined in their business, they led the Hogwarts contraband network, after all, so they could learn some more under oath.
+Vladmir ad Neville wanted to have the opportunity to know their contacts in the Houses and get intelligence on them.
+
+The twins looked at each other, and asked what kind of oath, which made the three nobles smile.
+They were clever.
+
+"I, Frederic Gideon Weasley, swear on my magic that I will never reveal the Alliance's business dealings, nor the names of its members," the first twin whispered, repeating Vladmir's sentence.
+
+"I, George Fabian Weasley, swear on my magic that I will never reveal the Alliance's business dealigs, nor the names of its members," the second said as well.
+
+Neville, smiling, walked close to them and discreetly whispered the location of their secret romm in their ears.
+
+"The Alliance headquarters is located in room 278 of the second floor of the West wing in Hogwarts."
+
+Unders the Weasely twins' stupefied looks, a door appeared in the middle of the corridor.
+They did not expect to discover a _Fidelius_-protected place...
+Worried to discover that they put their feet in something unknown and surely illegal, or at least more illegal than mere contraband of alcohols in the schools, they followed the small group.
+The memebers of the Alliance kept secret enough things that they needed the _Fidelius_ to feel safe.
+
+The rom the Weasley twins discovered was the image of the small band.
+Eclectic, surprising.
+The furniture was patchy, the colors perfectly matching, despite the wide collection.
+The walls were covered with tapestries and huge plans of the school.
+
+One gesture from Kevin invited the twins to sit, while Vladmir got his school robes off to get more at ease, quickly imitated by Neville and Kevin.
+
+"Well, what do you want?" Hermione asked.
+
+Except the twins were staring at Vlamdir's and Neville's marks, the tatoo of their respective Courts perfectly distinct on the pale skin of their forearms.
+Fred shivered when he sa the pink skin on his forearm and the scars recent enough to be in relief.
+The memory of bones piercing through the skin and the Russian burning himself to limit blodd loss came back to his mind, while George stared into Vladmir's eyes.
+
+"You..."
+
+The twins' gazes passed over the five students around thme.
+Hermione, sprawled in an armchair, with Kevin to her right sitting on the armrest, gave them an encouraging smile.
+Neville and Vladmir, relaxed, observed their reaction attentively, while Draco, princely, was standing to the lioness' right, leaning of the armchair's back.
+
+"You all know for th Mirage Court..." Fred weakly noted.
+It was way bigger than they could ever imagine, and the sudden arrival of Vladmi in their smuggling network now took a whole new dimension.
+
+"Hence the _Fidelius_," George whispered.
+"Which means..."
+
+"... that we indirectly work..."
+
+"... for the Mirage Court..."
+
+"Exactly," Valdmir smiled.
+"But how do _you_ know?"
+
+"Charlie," the twins answered in unison.
+They had discovered their oldest brother's tatoo the previous year, and the dragon tamer explained them its significance after making them swear to keep secret this part of his life.
+
+"Do other people in your family know, apart from Bill?" Vladmir asked.
+
+The two Weasleys shook their heads, surprised of the extent of Vlad's intelligence.
+Bill knew his borther belonged to the Mirage Court, as he occasionally worked on common business between Gringott's and the magical Mafia.
+
+"I am a prince of the Russian Court," Vladmir smiled, answering their silent question.
+"I know Charlie well, and the Goblins praise Bill deeply, in their own way of course."
+
+"Good...
+Do you want to stop business with us?" Kevin asked as the twins realised that Vladmir was more than a simple member and Russian noble.
+The saviour of the English wizarding world was a true master of shadows.
+
+"No!"
+
+The twins did not want to become basic civil servants in the Ministry of Magic, as their mother wanted.
+They dreamt of creating a joke shop, joining Charlie and Bill in the secret world of the Mirage Court.
+They had just not expected to be able to get in this way, and they absolutely did not want to let this opportunity pass.
+
+"Well then, welcome into the Alliance," Hermione smiled.
+"But now..."
+
+"Let's get to the serious business," Vladmir declared, leaning towards the two brothers.
+
+"Our sister, Ginny..."
+
+"...is behaving strangely."
+
+"Strangely?" Kevin repeated, encouraging them to elaborate.
+
+"Since the start of the year, she has become way paler, is eating less and less, and is isolating herself," Fred whispered.
+"Ron and Percy say it doesn't matter, but she's not our sister any more."
+
+The simple fact that only one of the twins was speaking was a clear proof of their worry, as was the lack of the usual amused shine in their eyes.
+
+"Go on."
+
+Georged looked at Vladmir and sloly sighed.
+
+"Ginny has always been joyful and full of life.
+She makes friends easily, and she already know Helena Dikson, a girl from her dormitory.
+Except they stopped talking, and Helena said that Ginny was weird since the start of the year.
+We thus started to look over her from afar."
+
+"She arrived to tonight's meal very perturbed, nearly crying," Fred finished.
+
+"Just before we discovered the writing," Hermione whispered, pensive.
