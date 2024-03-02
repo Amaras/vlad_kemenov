@@ -62,7 +62,7 @@ Kevin knew...
 He would have ended up in the mines, with his five brothers and sisters.
 Hermione, meanwhile, would probably have to work in a factory, unless her parents paid for new studies.
 
-Kevin set down another pile of old books in front of Hermione, and looked at the ones shar had already finished reading.
+Kevin set down another pile of old books in front of Hermione, and looked at the ones she had already finished reading.
 He had to admit that she assimilated quite an astronomical amount of information in a miniscule amount of time, browsing the volumes at a breakneck pace.
 
 _Hogwarts Legends_, by Angus Ravenclaw, 1534.
@@ -77,4 +77,133 @@ Sometimes, they both wondered why wizards did not use Muggle inventions more oft
 > Rowena created the Room of Requirement, a mythical room able to invoker everything one needs, equally for relaxation, or for research.
 > Only the initated can find and summon the room.
 >
-> Godric intalled the Duelling Room deepin the dungeons
+> Godric installed the Duelling Room deep in the dungeons, able to materialise the most hostile environments for magical combat practice.
+> According to rumours, only a powerful warrior is able to find them.
+>
+> Helga had Magical Greenhouses built under a great dome in the centre of the castle.
+> Some say they are close to the Hufflepuff common room, but this House's location is the msot secret of all, and only its students know the truth.
+>
+> Salazar hid somewhere in the castle a perfectly secure room for his potions experiments, protecting the students from possible explosions.
+> Legends say that he had a pet to protect its entrance.
+> His decendents only can find his laboratories.
+
+Kevin stopped reading and looked back at Hermione, who pushed two books she had put away towards him.
+
+_Salazar Slytherin, life and work_, by Elizabeth Lawson.
+
+_Magical bloodlines, fron Antiquity to today_, by Myrddin Wyllt.
+
+"Not 'History of Hogwarts'?" Kevin asked with a smile.
+
+"All checked out, with a two-week wait," Hermione distractedly answered, opening a book and pointing to a page.
+"Take a look."
+
+Kevin sad down and looked at the magical lines.
+It was probably a rare, enchanted book, automatically updating itself.
+He easily found Slytherin's name and traced the dozens of lines formed by his descendents.
+Kevin frowned when he realized that all but one of his heirs died.
+And the remaining name did not please him.
+
+"Hermione, did you read this book?" Kevin asked.
+
+The young girl lifted her head from her reading, pushed back a few strands of her hair behind her ear while shaking her head.
+Kevin turned the book towards her, and Hermione slowly followed the line the Ravenclaw pointed to her, before suddenly growing pale.
+
+"That's..."
+
+"Shush," Kevin whispered, looking behind her.
+Theodore Nott and Daphe Greengrass sliently arrived, followed by Blaise Zabini, who was as exuberant as ever.
+Kevin softly turned the pages to not show this line, and accidently found the page for the Weasleys.
+Amused, he showed Hermione, who softly laughed when she noticed that it was an old line, decending from the Malfoys.
+And to think that Ronald's resentment towards Draco was growing stronger as time passed, because Draco did not lose an occasion to annoy him...
+Did the Gryffindor know they were distant relatices?
+
+"Hello," Theo smiled, reading over Hermione's shoulder.
+"May we?"
+
+"Of course," Kevin answered, getting back the book his hands to continue reading it calmly."
+
+"You found a book written by Merlin?" Blaise said, impressed, reading the title of the grimoire as he pushed a rather wobbly pile of books to fit on the table.
+
+"Merlin?" Kevin asked, surprised.
+
+Theo laughed softly, and looked at the two Muggle-Bornds.
+
+"You know, quite a lot of Slytherins like you.
+You accept our House without much problems, and you are so in the know of our traditions that we always forget you are Muggle-Borns."
+
+"You don't hate Mudbloods?" Hermione asked.
+
+"No at all, the main problem is the lack of adaptation and acceptation of our society's customs.
+Frankly, just notice the reactions from the duel...
+Most Muggle-Borns, and even a few Half-Bloods, were disgusted.
+But when you ask any Pure-Blood, they'll say that a duel, especially as regulated as it was, and supervised by arbiters and aurors, is perfectly acceptable," Daphe said softly.
+
+"To get back to the initial discussion, Merlin's real name was Myrddin Wyllt, and books from his  hand are rare, all the more if they are enchanted," Theo said.
+"Are you interested by magical lineages?"
+
+"We're curious", Hermione vaguely answered.
+
+"Of course, it has nothing to do with this thing about an heir," Blaise said with a smile.
+
+"Of course," Kevin nodded.
+
+"By the way, Vlad was not in Charms lecture," Daphne declared.
+"I hope he's okay!"
+
+"He left school for the day.
+He has family matters to take care of," Kevin avoided answering directly, as he did not have a reason to explain the Russian tradition of the day of the dead to the Slytherins.
+They did not care to know more, like a Gryffindor would have done, and focused on their homework, while the Ravenclaw went away to put away numerous volumes.
+The Kemenovs were one of the most influent clans in Russia, its heir probably had strong familial obligations...
+
+<hr>
+
+And the Slytherins, as was Kevin, were not far from the truth.
+After spending part of the day talking with Katya about the clan's affaires, Vladmir was sitting on his parents grave, accompanied by Katya, Sergei... and Lucius Malfoy.
+The latter, distinguished in his ceremony robe, was pinching his lips while downing his glass of Pure-Ice vodka after the communion with the deceased
+This ceremony had impressed him, especially the powerful wave of pure magic coming from the grave at the end, but he did not seem to appreciate the Russian national drink as much as the other three.
+
+"My dear," he said, attentively observing Katya while Vlad broke the bread and was passing it to Lucius.
+"As much as I am honoured to take part in such an important event as the celebration of the deceased, I highly doubt you invited me only by friendship.
+If friendship can define our relationship..."
+
+"I think we can consider each other as an ally at first," the Kemenov matriarch smiled," but you are not wrong.
+We are meeting here for a reason.
+This cemetary is free from eavesdroppers, as one can only come here if accompanied by a relative of one of the people buried here..."
+
+"Did Draco inform you of our discussion with one of your family's elves?" Vlad asked, softly swirling the end of his glass of vodka.
+
+"He has," Lucius became gloomy.
+
+Indeed, his son had informed him of the presence of his wife in Russia, although she had told him she would go to the Mauxfois, the French family branch.
+Narcissa had deliberatly lied to him, but he was waiting before making her understand that you don't betray a Malfoy.
+
+"What do you know exactly about..."
+
+
+"It's family matters," the Lord cut short.
+
+"No, it isn't," Vlad softly responded.
+Lucius looked at him, surprised that his aunt let him finish the rest of his glass of vodka without saying anything -- Russians definitely were alcoholics -- and looked into the green eyes of the young boy.
+
+"Draco did not tell you anyhting, considering that it was possible your wife intercepted the letter," Katya declared, leaning on the Potters' tomb.
+
+Lucius stayed silent, waiting for the woman to tell him more, thinking about her words.
+A few months beofre, Draco would never have imagined that Narcissa could read the letter he sent to him, although she regularly did.
+The Lord realised his son was growing up, and that was not to his displeasure.
+
+"Ilyna Saprovna Dolohov, and Felix Demetrovitch Darerine...
+Do you know those names?"
+
+"Unfortunately, I do," Lucius nodded.
+"Felix was Voldemort's necromancer during the war.
+He gave him most of the Inferis.
+He fled to Russia when the Dark Lord disappeared.
+As for Ilyna...
+She was the Lord's lietenant in Eastern Europe...
+I think she went to her family's castle in Estonia.
+
+"I did not know he was in contact with Slavic families," Vlamdir whispered for himself.
+Lucius heard him, however, and sighed before responding.
+
+
