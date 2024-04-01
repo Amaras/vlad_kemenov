@@ -206,4 +206,142 @@ I think she went to her family's castle in Estonia.
 "I did not know he was in contact with Slavic families," Vlamdir whispered for himself.
 Lucius heard him, however, and sighed before responding.
 
+"He was.
+Slavs have the greatest concentration of Dark families, and the Dark Lord was trying to rally great and powerful families.
+Fortunately, he did not have time to!
+He was starting negociations, and Ilyna was doing very well...
+Though I don't see what this has to do with Narcissa...
+Oh! Don't tell me she..."
 
+"She met with both of them during her stay in Russia," Katya declared.
+
+Lucius closed his eyes for a fraction of a second, trying to keep his ideas in order.
+What was she doing there?
+Why did she meet with two of the most powerful Death Eaters?
+She did not even bear the Mark!
+
+"Can I ask you an indiscreet question?" Vladmir asked softly.
+
+Lucius observed the young boy who was staring at him with his big, hypnotic green eyes.
+Draco had hidden his friendship with the young Russian from him from the start.
+Lucius only discovered it during summer break, and he was already in close contact with clan Kemenov...
+Although he could not stand James Potter, he strangely appreciated his sister, totally different from him, appart from their physical appearance, as he did for her nephew, a real noble, knowledgeable of his duties as heir...
+Totally the opposite of James, in short.
+
+"If you allow me one question in return."
+
+Vlad smilled slightly and nodded.
+
+"Why did you stay loyal to Voldemort?
+You were his right hand man, but you preferred dissolving the Underground rather than giving him access to the network..."
+
+Lucius allowed himself to show a pale smile.
+Nobody had dared to honestly ask him about this question, even if it was key when you wanted to understand him.
+
+"Everybody makes mistakes...
+But everybody deserves a second change.
+My mistake was blindly following my father and allowing myself to be marked."
+
+Lucius had received the Dark Mark the day of his graduation, as did several students, including his best friend and confidant, Severus Snape.
+But reality was not as rosy as Abraxas Malfoy had told him.
+There was no exchange.
+There was no feedback.
+There was only a master and an opinion...
+A master and slaves.
+
+It was what Pure-Bloods were reduced to.
+Mere slaves destined to obey and suffer when their master was displeased.
+
+After the murder of an entire family of Muggles, including an adorable three-year-old girl, Lucius had focused his attention on the Underground.
+He had been a member since he was fifteen years old, introduced to this environment by Severus, whose maternal branch of Princes was a Master family specialized in Potions--unsurprisingly--, and he had climbed the rank ladder up to becoming a Triad.
+
+To stay alive, as you only go out of the Death Eaters feet first, he had pretended to work for Voldemort inside the Mirage Court.
+His double dealings had allowed him to get inside the inner circle of Death Eaters, then Voldemort's right hand man...
+Until he learned that the Dark Lord, he ignored how, had discovered the identity of the two other Triads and had them executed, in order to put him at the helm of the Underground...
+
+"I used two true facts to cnvinced them I could not use the network for his benefir after the disappearance of Orion Black and Julius O'Summers.
+First, the identity of its members was secret, and I could not approach them discreetly, and second, that for a Mirage Court to be legitimized by the International Council of Courts, there needeed to be three Triads."
+
+"It's true that the International Council would have dissolved the Underground if you had stayed alone as a leader."
+
+Vlad thoughtfully observed the English Lord.
+Each Court's Triads met together in an International Council to supervise the whole world's Courts discreetly.
+It only intervened in rare circumstances, but each one of those was memorable... when not downright shocking...
+Lucius had briliantly manipulated the Dark Mage with this detail, but something bothered him.
+
+"Orion Black...
+Was he from your wife's family?"
+
+Lucius felt as if he had been struck by lightning.
+Up until then, he had never linked Narcissa to Voldemort, and had thus never suspected her of betraying Orion...
+However, what he had learned recently had changed things a lot.
+
+"Blacks were and Master branch specialized in intelligence," the Lord said with a blank voice.
+"Narcissa knew her uncled was a Triad."
+
+"And if she had denounced Orion, he could have been tortured until he told about O'Summers...
+One more thing, how did you manage to convince Voldemort you ignored the names of the other two Triads?" Katya asked.
+
+"I was the last one in, and in some Courts, the youngest Triad ignores the identity of its elders."
+
+"Mostly in Asian Courts, though," Vlad said, wondering.
+
+"The Dark Lorst did not know that," Lucius responded with a sneer.
+
+"Sly and cunning."
+
+"Slytherin," the blond man retorted, making Vlad roll his eyes.
+Hogwarts Houses were too important for English wizards, even worse than a resume!
+
+"A tad bit sentimental as well," the boy snickered, "can I call you Hufflepuff?"
+
+The Lord's offended face made the Russians smile, before Lucius understood that Vladmir was mocking him.
+Lucius noted that this sneer emphacised the thin scar on the boy's cheekbone, the one that intringued bith him and Draco since they saw Vladmir's naked torso getting treatment from Hogwarts' nurse.
+She had spent numerous hours on the two duellists, barely saving the mercenary that had been weakened by the blood loss he had sustained.
+The young Russian had several scars, most if not all from Dark spells and quite impressive.
+None of them were as thin or discreet as the one on his face, which should have disappeared with appropriate treatment.
+It thus probably had a personal significance for him to want to keep it.
+
+"This scar... where does it come from?"
+
+Vladmir's face went blank, and he distractedly caressed the small puffiness, looking at the sky above them.
+
+"I was nine...
+I used a moment of inatention from Ju-ie, my nanny, to go play on the Neva quays.
+A man took that opportunity to kidnap me...
+A Muggle, who thought--rightly so-- that I was a rich heir.
+He hit my face to knock me out, and I got this scar and quite the scare.
+Sergei found me a few minutes later.
+Since then, each time I do something outside, at least one person knows where I'm going and who to contact in case there is a problem.
+And I'm always on the lookout.
+
+"It's the only time you disobeyed, Kitten," Katya smiled, as Sergei, who had not talked at all since their discussion began, walked towards him to pass his hand through Vladmir's hair.
+"I was happy that you immediately understood the dangers."
+
+Lucius thought about his own son.
+At nine years old, Draco threw tantrum after tantrum, convinced he was entitled to everything as heir to the Malfoy family.
+It was about the age at which he realised that spoiling and overprotecting his son was not a good idea, especially if he wanted to make him a sensible man.
+It had taken him a while to make up for the damage done, but he seemed successful, seeing the friendships his son had in Hogwarts.
+
+"We have another problem with your wife," Katya sighed.
+"She introduced a Dark magic artefact in the school.
+Something evil enough that Dobby crashed into my home to dissuade Vladmir from returning to Hogwarts this year."
+
+"Do you know what it is?" Lucius asked sombrely.
+
+"Not yet," Vladmir admitted.
+"My friends and I are working on it.
+We have a lead, however."
+
+Lucius Malfoy stood up and dusted his robes, and the three Russians followed.
+He nodded respectfully to Vlad, who nodded back with a slight smile, then he shook Sergei's hand, before gallantly kissing Katya's hand.
+
+"I will not harm Narcissa until I know the ins and outs of this case.
+However, I will make sure her every gesture are monitored.
+If she meets another Death Eater, I will contact you."
+
+On those last words, Lucius left with a swirl of his cape that strangely reminded him of the Potions Professor's.
+
+Vladmir leaned on the tomb, and put his head on Katya's shoulder, while Sergei got himself comfortable in front of them.
+The traditional candles shone brightly and small snowflakes started falling.
+Contrary to Lucius, who had kept his heavy fur-lined cape during their conversation, the three Russians had taken off their coats since the beginning, used to the cold.
