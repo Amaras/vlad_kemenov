@@ -345,3 +345,191 @@ On those last words, Lucius left with a swirl of his cape that strangely reminde
 Vladmir leaned on the tomb, and put his head on Katya's shoulder, while Sergei got himself comfortable in front of them.
 The traditional candles shone brightly and small snowflakes started falling.
 Contrary to Lucius, who had kept his heavy fur-lined cape during their conversation, the three Russians had taken off their coats since the beginning, used to the cold.
+Those were laying underneath them, protecting them from the glacial marble.
+
+Sergei reached out with his hand and gather a few snowflakes that he observed for long minutes before letting them fall.
+His body temperature was identical to the ambiant air's, and it was close to the freezing point of water now.
+He raised his head and looked at the Kemenovs with a smile.
+Vlad had fallen asleep and Katya was watching the snow fall.
+
+"*The first snow of the year...*"
+
+Sergei nodded.
+The first snow was significant for Slavic wizards.
+The earlier it appeared, the harsher the winter, both in climate and socio-political events.
+It still had not fallen in Russia, but it fell here, in England.
+This spelled upheaval.
+
+"*Kitten...*"
+
+Vlad's eyelashes fluttered before he slowly opened his eyes as Katya cautiously shook him awake.
+
+"*Has the first snow fallen on Hogwarts?*"
+
+"*Last week,*" Vlad said with a sleepy voice.
+
+"*I think it's time to go back home,*" Sergei whispered while the snow was falling heavily.
+They all shook their head and slowly walked out of the graveyard, which was quickly getting covered by a white mantle.
+
+Vladmir, still a bit groggy from his unexpected nap and nauseous from the Apparition, barely had the time to take a step in the Hogwarts entry hall before Kevin took him appart.
+
+" _Blimey Vlad, we have a problem... A big problem,_" the young Muggle-Born hissed in a low voice.
+
+" _Why Parsletongue?_" the Russian wondered.
+
+"Walls have ears," Kevin groaned in English, looking at the Headmaster passing by a few metres away.
+" _Bloody Legilimens._"
+
+" _Did he breach your barriers?_" Vlad asked worriedly, as the penetrating gaze of the Headmaster settled on both of them.
+
+" _No, but he tried all evening on Hermione.
+He noticed the disapperance of something in the library and accused both me and Hermione.
+He has no proof, and Madam Pince strongly reprimanded him for starting rumours._"
+
+Hermione and Kevin were the librarian's favourite students, so Vlad was not surprised she had taken their side, even against the Headmaster.
+
+" _Are you for something in the disappearance?_"
+
+Kevin did not answer, and lead his friend through the corridors, using several detours to check if they were not monitored before stepping in the Alliance HQ.
+
+Hermione, Draco, and Neville were already there, leaning over a thick book.
+Not a word was uttered, and they pushed the book in front of him.
+Reading the title, the Russian knew they had the book stolen in the library, and why Dumbledore was furious.
+Not only it was written by Merlin, but it was a register of the British wizarding bloodlines.
+Vladmir looked at Slytherin's family tree with surprise.
+
+"Why Slytherin's?"
+
+"The use of the word 'heir'...
+We are in Hogwarts, it has to be one of the Founder's descendants."
+
+"And because it's a basilisk, it has to be his line," Neville added.
+
+Vladmir let his sight glide over the names, some famous, some not so, until he saw the last two.
+Under the name of Tom Marvolo Riddle was linked by right of conquest the name of Vladmir Vassilievitch Kemenov, né Potter.
+
+"Who's Tome Marvolo Riddle?" Hermione asked after a heavy silence.
+
+"He's known as Lord Voldemort," the Russian grimaced.
+"This fucking extoplasm ruins my life since the beginning!"
+
+His friends grew pale as they realized that, once more, the Dark Lord was probably linked to Hogwarts' problems.
+Vladmir was furious, swearing in several languages on his bad karma that followed him for Hallowe'en and the Day of the Dead, evoking stories about bad omens and first snows that left his friends wondering.
+
+"I have not found annything about the Chamber of Secrets..." kevin eventually whispered, getting his friend's attention on the current problems.
+"I think we have to get a copy of _Hogwarts: a history_, it's the only place there could be information about it."
+
+"I have already sent an owl for my mother to send me our library's copy," Draco interected.
+"It should arrive tomorrow morning.
+However, there are rumours in my common room saying it was open once already and that a student was dead.
+According to thme, Mudbloods will be the heir's primary enemies."
+
+"With the stories of Salazar Slytherin's intolerence, it's possible their goal is the elimination of Muggle-Borns in the school...
+But Mrs. Norris?" Vladmir wondered.
+
+"Flich is a Squib.
+Some consider them as worse than Muggle-Borns.
+Maybe he was the target?" Neville intervened, knowing full well what he was talking about.
+He had made other people believe that he had only as much magical powers as a Squib when he was a child, and he still got mockery about his status, strenghened by his psudo-shyness and lack of confidence that he tried to keep in public.
+
+"Hermione, Neville...
+You have History of Magic tomorrow, right?" Kevin asked.
+
+"Yeah!" Hermione exclaimed.
+"We'll ask Binns if he knows anything!"
+
+"By checking what he'll say against _Hogwarts: a History_, and the Slytherin rumours, we should get to know what happened...
+Draco, could you get to know when the Chamber of Secrets was opened?"
+
+"Are you afraid it happened when Voldemort was in Hogwarts?" Neville worried.
+
+"Indeed, he was the last legitimate heir, and I did not open this Chamber, I can swear it on my magic."
+
+"We believe you Vlad," Draco sighed.
+"We're probably the only one, actually, but we trust you.
+By the way, you massacre your enemies in public, not while hidden behind a mythical creature," the blond sneered, bringing smiles on his friends' faces.
+
+"Oi!
+It's my role to lighten the mood," Kevin took offence," you're the one supposed to ruin in, you sinister Snake!"
+
+This time, everyone laughed as Draco childishly stuck out his tongue at the Ravenclaw.
+
+"We know Voldemort did not die last year," Vladmir continued softly.
+"If he opened the Chamber of Secrets, then he can do it again... and I don't want to see my friends die."
+
+'Not again', Vlad thought, looking at Kevin and Hermione.
+The firve friends fell into a memditative silence for long minutes, until they jumped when the door suddenly slammed open.
+
+"Merlin, what..."
+
+"Dark mood coming out..."
+
+"Of this room! Fortunately we're here..."
+
+"To raise your spirits!"
+
+The Weasley twins walked into the HQ, and sat down around the table, as Hermione smiled at them.
+
+"How's Ginny?" Neville asked.
+"She was not here today."
+
+"If you tackle all the tough subjects, I understand your mood," Fred sighed.
+
+"She spent the day in the Hospital wing," George added.
+"According to Percy, she fainted in Potions class.
+I would have said that the greasy bat was responsible for it, but she was so weak that he has no fault in it.
+Madam Pomfrey said that she was only exhausted."
+
+Vladmir was surprised when he saw Neville grow pale and clench his jaws, as if something the Weasley twin said made him uneasy.
+
+"However, there are two good things," Fred sighed, not realising that Vlad had stopped listening.
+"She got a visit from a slightly 'out there' Ravenclaw blonde girl..."
+
+"Luna Lovegood?" Kevin asked.
+"She's peculiar, but she has a gift when it comes to understanding people.
+If she was with your sister, Ginny needed that."
+
+"What about the second thing?"
+
+"Percy finally took our warnings seriously.
+You missed Mom's Howler arrived by express owl.
+For once, she said that he should have listened to us!"
+
+"We tried to save it to immortilise the moment, but we failed," his twin chuckled.
+"I think she doesn't know that Ron has become our favourite test subject since a few days ago.
+He has spent quite a bit of time in the Hospital wig, though."
+
+"Why?"
+
+"We like Hermione and Neville, and our brother--and I'm ashamed to call him that--spends his time insulting and berating them because they are more open-minded than them and don't see the world in black and white.
+He tends to forget that the range of grey inbetween is huge...
+It's time he put Goblin money in his brain instead of the Leprechaun gold he already has.
+
+"What about the diary?" Vlamdir eventually asked, going back to the conversation after Neville reassured him with a hand gesture.
+
+"We'll try taking it tomorrow morning, when all the girls will be gone to breakfast.
+Ginny is spending the night under the Dragon's guard, she won't be able to get it before us."
+
+They all nonned, and Kevin advised them to drop it off in the HQ once they got it.
+It would be protected, and Ginny could not get it back.
+They finally went back to their dormitories, but Vlad held back his Gryffindor friend by his sleeve and waited for the others to go out before looking at him.
+
+Neville had kept the bloolines book against him, considerably paler than usual.
+
+"Nev', are you alright?
+You look quite pale."
+
+"Vlad... we believed the Prince line to be extinct," Neville whispered.
+
+He held out Merlin's book towards him, opening to a specific page.
+
+The Russian's eyes widened when he read the last name.
+
+"Do you think Dumbledore knows?" Neville whispered again.
+
+"I don't know...
+I prey that he does not.
+Before anything else, we need to talk to _him_."
+
+Under the name of Eileen Prince, glowing with a golden yellow signifying that the heir was alive, a name appeared.
+_Severus Tobias Snape._
