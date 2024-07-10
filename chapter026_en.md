@@ -1,4 +1,4 @@
-## Chapter 25: Second victim
+## Chapter 26: Second victim
 
 Vladmir and Neville attentively looked at Severus Snape's face, and especially the quite impressive array of emotions his face and eyes expressed.
 
