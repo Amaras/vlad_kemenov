@@ -359,4 +359,284 @@ The young Seeker immediately understood the danger, and rolled on the ground, av
 "Go away Malfoy! It's targetting you!" Fred yelled as the ball was immediately flying back.
 
 Flint arrived right then and raised his player, installing him behind him despite Draco's painful groan.
-He immediately flew towards the stand, while the Slytherin beaters also intervened, helping the twins
+He immediately flew towards the stand, while the Slytherin beaters also intervened, helping the twins in a yet unseen act of solidarity.
+It had been only a minute, and Vlad and Neville finally reached the centre of the field.
+
+The Ravenclaw waited for a fraction of a second so that the ball was far away from every player, and yelled a he in Russian, while Neville used a revealing charm.
+
+_"Magicum possus revelate!"_
+
+"*Destroy*!"
+
+The two spell reached the poor enchanted ball and a silhouette appeared, wearing a mask, while the Bludger exploded.
+
+A heavy silence fell on the stadium, the sudden deflagration calming the panic.
+In complete silence, the four beaters quickly put Draco's friends behind them to bring them as quickly as possible to the foot of the professoral stands, where Marcus Flint, Draco, and several professors were.
+
+Their friend was leaning on the Slyterin captain, who was looking daggers at Lockhart.
+The Defence Agains tthe Dark Arts professor was pointing his wand towards the blond's arm, which was weirdly bent.
+The worry of the Alliance members grew, and one of them snapped.
+
+"Immediately get away from him."
+
+Kevin's glacial voice made all the professors jumps, while Lockhart grew incredibly aple.
+
+"I will not let a professor this incompetent touch a friend," Vlad intervened at the moment the rest of the professors arrived.
+Lockhart, meanwhile, had backed away behind Minerva McGonagall as he saw the murderous looks the second years directed towards him.
+
+"Mr. Entwhistle, two hours detention and 50 points for the lack of respect!"
+
+"You shut up!" Hermione spat.
+"Our friend nearly died, and the only thing you do is take away points?"
+
+"Indeed, you should think about your students' health.
+Oh, right! I forgot he was a negligeable Slytherin!" Neville continued, also furious about the obvious lack of interest for Draco the Deputy Headmistress displayed.
+
+Minerva McGonagall stayed frozen from the astonishment, the attacks from her most brilliant, and most shy students were as unexpected as aggressive, while the matron rushed to draco, bumping the Transfiguration professor away in the process.
+Pomona Pomfrey, totally impartial, immediately cast numerous spells on the young Malfoy and carefully observed the results
+
+"Oh, Merlin!
+Mr. Malfoy, we immediately go to the Hospital Wing," Mrs Pomfrey cried out, casting a levitation spell on Draco to keep him from moving in unexpected ways and to transport him, ignoring the offended protestation of the student.
+
+"What does my son have?" Lucius asked, approaching his only sn.
+
+Worry was only visible in his grey eyes, as was Severus Snape's.
+
+"Your son suffers from several broken ribs and a slight concussion following his fall.
+His arm is also broken in multiple places.
+Now please excuse me, I have a student to nurse!"
+
+Lucius observed the matron run away with his son levitating in tow, and he turned towards the Alliance members.
+Neither him nor the professors had time to react to Draco's sudden fall.
+He had noticed the repeated attacks from the Bludger, but he had optimistically thought that the arbiter controleld the situation...
+Fortunately, his son had fantastic friends...
+
+"I did not think we would meet again in such a situation, Mr. Kemenov."
+
+"I am sorry for this as well," Vladmir muttered.
+
+"You destroyed the only proof we..."
+
+Albus Dumbledore had finally arrived, out of breath from his descent from the professoral stand, glasses crooked, his face red with anger, and lashing out at Vladmir and his friends, strangely present at every major incident in the castle.
+
+"Mr. Dumbledore, I strongly discourage you from finishing your sentence," Lucius Malfoy coldly declared, before ignoring the old mage and setting his attention back on the four students.
+"Vladmir, Neville, Hermione, Kevin, I thank you for rescuing my son with such composure.
+Mr. and Mr. Weasley..."
+
+The two twins tensed up, surprised to hear the Lord talk to them, as it was common knowledge that Lucius Malfoy and their father hated each other.
+
+"Thank you as well.
+You did not leave my son alone, and you protected him from this Bludger."
+
+"Let me thank you as well," Marcus Flint suddenly declared, looking at the two Gryffindor Beaters.
+"Without you, Malfoy would have surely been more injured, and we are not the most fair opponents..."
+
+"Let me tell you your behaviour is shameful!" Dumbledore yelled out after Minerva had quickly summarized the situation.
+"For your overt disrespect of two professors, you are forbidden from seeing Mr. Malfoy in the Hospital Wing for the duration of his stay there, and you will be in detention until the end of the month!"
+
+It was for this reason that, at midnight, the four of them were in a hidden passage, guided by the Weasley twins, who knew the castle inside out.
+
+"Why did Dumbledore forbid us from seeing Draco?" Hermione aked once more in a whisper.
+"Detention is enough!"
+
+"To be a pain in the arse," Kevin grumbled, exasperated.
+
+"Language!" Neville sighed, moving a spiderweb aside.
+
+"Yes mother!"
+
+"Shut up, you'll get us caught!" the only girl of the group got annoyed.
+"Vlad, tell them!"
+
+"Alright, you can go, nobody's there," George said, amusement noticeable in his voice.
+
+"Don't bring me into your arguments," Vlad declared to his friends while movinf the tapestry aside to look in the corridor.
+"Clear ,let's go."
+
+"Thanks for the confidence," Fred sneered.
+"My dear Greg, our partner in crime doubts us."
+
+"We are deeply..."
+
+"... saddened by this fact, sir!"
+
+"If you explain to us how you are so sure..."
+
+
+"... without even looking outside, I would trust you a bit more," Vlad smiled, finishing his friend's sentence.
+
+"Incredible, your Housemates chose your nickname well," George smiled while looking at the Ravenclaw Gemini.
+
+"We'll tell your our secret soon, we give you our word," Fred declared.
+"Now let's go!"
+
+One after the other, they left the alcove of the secret passage, and walked through the hallway to the door on the other side.
+It opened with a simple _alohomora_ from Hermione, alongside a hex deactivating the alarm spells on the door from Neville;
+
+"Silently, the small group walked in the hall and reached the only bed with its capony out.
+
+Draco, who barely slept despite the late hour, jumped when four people slipped on his bed and cast a silencing spell on the canopy.
+Even in the darkness, he immediately recognised Vlad's half-length and disordered hair, Hermione's bushy mass, Kevin's cowlicks, and Neville's voluntarily unremarkable silouhette.
+
+"Blimey, what are you doing here this late?
+And why didn't you visit earlier?"
+
+"We're forbidden from seeing you," Kevin sniffed.
+"Mione, could you?
+Thanks."
+
+Hermione had just raised her wand to cast some light on them.
+
+"Are you alright?" she asked, carefully looking at Draco, as her friends did.
+
+The Slytherin looked pretty good for a sick boy, with his nose wrinkled in frustration, and an amused sparkle in his grey eyes when he heard their punishment.
+
+"Of couse I'm alright," the blond boy looked falsely offended.
+"But my father insisted that I sleep here tonight.
+Please, tell me you're saving me from the Dargon!"
+
+"Come on, Pomfrey is not that terrible", Neville tempered, having visited the Hospital Wing as a patient several times.
+
+"But I won my first match!" the Slytherin pouted. "I have the right to a reward, and I demand to be let our."
+
+"You know, Dray, you're supposed to be past the age of tantrums," Hermione mocked him, comfortably settling on the bed.
+
+"Don't care!
+She's a tyrant, my personal monster!
+She passes by every hour checking I am well, and to see if I have sleep issues!"
+
+"That's why you are awake," Vlad realised with a great deal of amusement.
+
+"Please get me out of here," Draco begged, his hands joined in prayer.
+
+"No."
+
+"Traitor."
+
+"I protest, you are the traitor!"
+
+"Why?"
+
+"You supported Hermione when she wanted to see you!"
+
+"It's normal that... shush!"
+
+Noises rang out outside, and the Hospital Wing door opened, and voices could be heard, while Hermione extinguished her wand with a flick of her wrist.
+
+"Go get Madam Pomfrey."
+
+"Dumbledore," Vladmir articulated as softly as possible, as they all put their ear to the curtains.
+
+"What happened?" the sleepy voice of the Matron asked.
+
+"A new attack.
+Minerva found him in the stairs."
+
+"Petrified?"
+
+"Indeed, but...
+I shiver just thinking about it...
+If I wasn't climbing down at this time, who knew who could..."
+
+"McGonagall," Hermione whispered, opening her eyes wide.
+
+"Do you think he could have taken of photo of the attacker?"
+
+A sudden whistling noise made them jump, as a strong burned plastic smell seeped through the curtains of Draco's bed.
+
+"Mercy, melted...
+The film is entirely melted."
+
+"What does it mean, Albus?"
+
+"It means the Chamber of Secrets was indeed opened for a second time."
+
+The Alliance members opened their eyes wide.
+They were right.
+The Chamber of Secrets had indeed been opened before...
+
+"But, Albus, who..."
+
+"The question is not knowing who, but knowing how..."
+
+The steps rang further, and Kevin carefully stuck his head betwenn the curtains to look in the Hospital Wing.
+
+"They left.
+But Pomfrey's office is lit up."
+
+"She is going to see me soon," Draco warned them.
+"She must not see you here."
+
+"It's time to quicken things up," Vladmir sighed.
+"Tomorrow, we all go the the Alliance room.
+Hermione, tell the twins, Neville, you'll bring Snape...
+Draco..."
+
+"I'll be there," the Slytherin confirmed.
+"Even if I hade to sneak out!"
+
+<hr>
+
+And the next evening, Severus Snape got in an isolated corridor in Hogwarts' second flo, wondering what he was doing there.
+Neville Longbottom had asked him to join him there, using the _Underground_ codes.
+And now, the young Pure-Blood asked him no less than an Unbreakable Vow...
+Snaped hesitated for a few seconds, then took his want out, and swore to never reveal what he would see, while he lambasted himself about the risks he was taing.
+
+Neville looked at him, expressionless, like a true Slytherin, which troubled the Potions Master even more, wondering what he would be stepping into next.
+Finally, the Gryffindor approached him and rose to the tip of his feet to get as close to the Professor's ear as possible despite his small size.
+
+"The Alliance HQ is in room 278 of the second floor of the west Wing of Hogwarts."
+
+The door revealed itself in front of Snape's wide open eyes, as he realised what was happening.
+A group of students had created a room protected by a _Fidelius_ charm right under the nose of one of the most powerful Headmasters of the school!
+
+With a pace as mechanical as astonished, he walked into the Alliance Headquarters.
+The small group that intrigued him so much, as well as the Weasley twins ware already sitting around a large round table, and two chairs were left unoccupied.
+An old hat was put on one, and the second one was empty.
+Neville invited him to sit on the latter, and the Potions Master sat down in a heavy silence.
+
+"Welcome ot the Aliiance, Professor Snape, a small group who initally wanted to get together in peace without being harrassed by sectarian professors, and which slowly evolved..."
+
+"Into a network affiliated to the..." The Potions Professor hesitantly looked at the Weasley twins and the two Muggle-Borns.
+"Do they know?"
+
+"To the Mirage Court," Vlamdir nodded, giving him the missing answer.
+"The point is to create a network to restart the _Underground_."
+
+"Putting the bases from school is risky," the Professor declared, feeling surprisingly at ease.
+He should have thought it completely crazy, plotting with twelve-year-olds in a secret room of Hogwarts, but he did not.
+The reactions of those students, their talents, meant that he felt like he was dealing with sixth or seventh year students.
+
+"It's as risky as spying Dumbledore..."
+
+"... in his own domain," the twins pointed out, as Snape was wondering what they were doing in the Alliance.
+Forbidden potions?
+After all, they were pretty talented, when they did not do dubious pranks...
+
+"Tlking about spying.
+Vlad wanted you ere for two reasons.
+First, what do you know about the first opening of the Chamber of Screts?" Hermione asked seriously.
+
+"Nothing, except that a student was dead, and a suspect was charged.
+Dumbledore never revealed anything more to the Staff," Snape grimaced, openly irritated by the Headmaster's attitude.
+The man was hiding too many things to be completely honest, and it had taken fiften years for him to realize.
+
+"Shit," Kevin grumbled.
+
+"Language!" Neville and Snape exclaimed at the same time.
+
+"Yes mothers!"
+
+While Neville did not blink at the address, the Potions Professor had a grim rictus and would have killed the young Ravenclaw if he was able, to which the young Muggle-Borm simply innocently smiled back.
+Finally, he understood Lockhart's terror.
+This child could be terryfying in his angelic appearance...
+
+"And the second reason?" he asked slowly, focusing back on Vladmir.
+
+"I would like to introduce you to an honorary member of the Alliance", Vladmir said with a predatory smile.
+"Professor, I think you already know André the Sorting Hat?"
+
+"Severus Snape...
+It had been a long time since our last conversation.
+It was the day of your Sorting Ceremony...
+Vladmir told me you wanted to extract information from Dumby without his knowledge?"
