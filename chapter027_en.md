@@ -740,3 +740,91 @@ Kevin looked at the professor make complicated gestures with a contempt so visib
 
 Many students laughed, as some booed the Ravenclaw for his outwardly insulting words.
 Finally, the two friends faced each other.
+
+"Afraid, Entwhistle?" Draco whispered.
+
+"You wish, Malfoy," Kevin answered, becoming serious.
+They both stared at each othe before getting into position.
+
+"_Stupefy!"
+
+"_Protego_."
+
+"_Rictusempra_."
+
+"_Expelliarmus_!"
+
+Shocked whispers started to grow, as the spells flew, clearly superiors compared to the ones they learned in class.
+Draco rolled on the ground to avoid the Disarming charm, and immediately cast one of his own.
+
+"Serpensortia_!"
+
+A small ice viper slithered out of the Slytherin's wand, and looked around her, clearly confused.
+
+"_Blimey, can't one sssleep in peaccce?" she hissed.
+
+"Sasha?" Kevin asked, clearly surprised, looking at Vladmir's quite angry familiar.
+
+"Don't move Entwhistle," Snape calmly said.
+"It's a particularly dangerous species.
+I will..."
+
+"I will do it!"
+
+Lockhart pointed is wand to the snake and something exploded.
+However, the reptile did not disappear, but was thrown up high, and violently landed, hissing in fury, trying to find the one responsible for this.
+She turned towards Justin Finch-Fletchley, the closest to her, and showhed her fangs.
+
+"_Leave him Sasha, it's not him_," Kevin sighed. "_Come_."
+
+Sasha hissed once more and approached Kevin, who had kneeled, reaching his hand out to the ground.
+
+"Mister Entwhistle, it's an..."
+
+"Ice viper, named Sasha," Kevin said, as Sasha climbed around his arm to reach his collar, where it was hot, hissing with happiness.
+
+"_You are hot, it's good.
+I don't like being summonded like this_."
+
+"_Don't worry, we'll be in the dormitories soon._"
+
+"What's your problem?" Justin suddenly asked, furious and scared.
+
+"I saved your life, you idiot.
+Sasha was disoriented, and she would have biten anyone.
+You in this case.
+You'd have been dead in a few minutes, after you felt agonising pain."
+
+The young Muggle-Born turned away, and approched Vladmir, who sighed.
+
+"Let's go."
+
+The twi Ravenclaws immediately walked out the room, as the other students moved away in front of therm.
+They both knew why, and they already were hearing the rumours grow among the second-years.
+Kevin, Muggle-Born and Parsletongue?
+Impossible.
+
+"Parsletongue is a lannguage like any other.
+You can learn it if you want to," the young Ravenclaw delcared loudly, not looking at his schoolmates, before walking out the door of the Great Hall.
+
+<hr>
+
+A few hours later, Kevin was staring at the curtains of his canopy bed.
+Sasha was in a ball on his belly, trying to confort him, while he distractedly caressed her scales.
+Rumours had already spread across the castle, and he wondered how the next day would go.
+On the other hand, he did not care that much...
+
+"You know, Vlad," he eventually said, catching his friend's attention, who was writing a letter to Katya, keeping her informed of the lateste development, "I don't care what other people think."
+
+Vladmr put down his quill and observed his friend, lost in his thoughts.
+Kevin slowly sat up, letting Sasha slip on his lap.
+The small viper kockingly protested, before coiling back on his knees.
+
+"I know they'll think I'm a Dark Mage.
+But the only opinions I care about in this bloody school," the young Muggle-Born softly continued, "are yours, Hermione's, Draco's and Neville's."
+
+"And we'll always support you," Vladmir softly responded.
+"Don't doubt it."
+
+It was enough for Kevin, who smiled at him softly before lying back down and closing his eyes.
+The next day would be a long one.
