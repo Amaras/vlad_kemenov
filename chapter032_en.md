@@ -861,3 +861,210 @@ For the simple reason that someone called the Basilisk.
 No one moved, knowing that any movement would catch the reptile's attention.
 They were caught by surprise but managed to hide behind the pillars of the room;
 Hermione and Neville, on the other side of the huge room, were silent.
+
+"Indeed...
+The diary must have grafted a part of the soul in her."
+
+"Is it possible?"
+
+_"I belive we have visitorsss pretty girl,"_ Ginny Weasley's abnormally hoarse voice.
+_"You will eat earlier than planned."_
+
+"Kevin, don't move and keep your eyes closed," Vladmir whispered before getting out from his hiding sport, trying his best not to stare into the huge snake's eyes.
+
+_"Do not atttack me."_
+
+The order, to Ginny's surprise, or rather the one who possessed her, was obeyed and the Basilisk hissed as she rolled up into a ball.
+Her hesitation was palpable, even for the three invisble spectators who worried to death for their friend.
+
+_"Ho are you?"_
+
+_"My name doessss not matter, only the line countsss..."_
+
+Some sentences were important in the Pure-Blood society.
+This was one of them.
+The person themselves was not relevant.
+The name and ancestry were essential.
+It was the case for Slytherin, and the Five Families.
+
+_"I am the only heir!"_
+
+_"You are Tom Marvolo Riddle.
+You are Lord Voldemort."_
+
+_"How..."_
+
+_"Sasssly, as heir of Sssalazar Ssslytherin, your First Massster, by right of conquessst, I order you to ssstop your attacksss on the cassslte!"_
+
+_"NO!
+Kill him!
+Kill this usurpser!_"
+
+Vladmir felt the bind in Voldemort's voice, but the Basilisk was a magical creature.
+As all creatures, she instinctively felt the magical links.
+And the being inside Ginny's body was not her master any more.
+
+Furius, Voldemort took his wand out to hex the Russian.
+He was quick, but Vladmir overcome him without a problem.
+Enven thought the Dark Mage was hugely powerful and knowledgeable in his normal state, the body he possessed was not.
+He could not prevail against the young Russian who was trained since early childhood.
+
+Once Voldemort was solidly tied up and his wand confiscated, Vlamdir took the diary out of his pocket to examine it.
+The possessed girl's hazel eyes followed the Russian's fingers dance on the dark cover warily.
+
+_"Sasssly, close your eyes and do not attack the othersss.
+They are my friendsss."_
+
+_"Yesss Massster."_
+
+I have a question, Riddle," Vlad lowly declared, as Neville, Hermione, and Kevin stepped out of the shadows, wand still in hand, looking out for any danger.
+
+"What is it?" the Dark mage responded, intrigued by this boy who knew his name.
+Something told him not to cross this child who, despite his young age, oozed Dark Magic.
+
+"How many Hocruxes did you create?"
+
+"How do you know this is a Horcrux?"
+
+"I belong to a Dark family," Vladmir calmly answered.
+"However, I am surprised you managed to possess someone this easily."
+
+"She opened her heart to me, gave me all her pains, her ridiculous crushes," Voldemort sneered.
+"It was so easy to transfer my sould into her once she lowered her meager barriers."
+
+"Let me ask again.
+How many Horcruxes did you create?"
+
+A heavy silence fell, before a strange sound rang out in the room.
+Vladmir held back a smile when he saw Kevin pet the Basilisk's nose and whisper her reassuring words from the corner of his eyes.
+He was the only one that would ignore one of the greatest Dark mages of this time.
+Apparently, the reptile was in awe of Hermione, probably because of her blood, although the young girl was not really up to petting the scales.
+Neville stayed focused on the problem and stared at Voldemort's eyes with hatred in his eyes.
+
+Vladmir did not stop looking at his enemy either, but the latter stayed silet until...
+
+"Who are you?
+Nobody defeated me, and the Basilisk should not have recognised you as my heir by right of conquest.3
+
+"This Basilisk has a name.
+She is called Sasssly.
+Ti answer your question, the piece of soul I am speaking to did not know my victory indeed.
+I don't know when you were created, but I defeated you in 1991.
+I am called Vladmir Kemenov."
+
+"Vassili has better not oppose me.
+The Kemenovs are once of the oldest Dark families of Russia!
+On the contrary, you have many things to gain by joining me.
+You power and my knowledge, together, we will do great things!"
+
+"We call that megalomania," Hermione sighed, making Neville smile.
+
+"So you know my clan...
+However, my birth name is not Kemenov.
+I was born Harry Potter, and I suppose Ginerva told you about my exploits?" Vladmir sneered as Voldemort spewed his hatred and his contempt in response.
+
+"Vlad, time is ticking," Kevin declared, observing Voldemort tied up on the ground, furious that he was defeated--again-- by _Harry Potter_.
+
+"Okay.
+_Sasssly, could you please bite in thisss?_"
+
+_"No way Young Massster,"_ the Basilisk hissed in disgust, looking at the diary Vladmir held at arms length.
+Hermione, who was fed up with Voldermort's screams and useless attemps for freedom, cast an _Immobilus_ on him, making him silent.
+
+_"Please."_
+
+The Basilisk froze, then attentively observed Vladmir with its green non-lethal eyes.
+
+_"You are the firssst to be cordial with me sssince the Firssst Massster, Young Massster."_
+
+She sprang onto Vladmir's arm, clutching her maw on the Horcrux.
+
+The scream that pierced the silence of the Basilisk chamber was horrible, coming both from the journal and young Ginny.
+Liters of ink spewed on the dirty tiles, and Ginny's body slumped down.
+
+_"Revolting!
+I hate dead meat and herbsss,"_ the Basilisk hissed, looking at the tattered diary.
+
+"You should get her back to her dormitories before she wakes up," André declared while Neville quickly covered Ginny.
+"I don't think she will remember anything."
+
+"Fawkes, could you do it please?"
+
+The phoenix cheeped, infuriated, and took away not only Ginny, but also Hermione and Neville, André still on his head.
+
+"Why did he take all Gryffindors in one go?"
+
+"I think he is fed up with shuttling back and forth for tonight," Vladmir grimaced, finally petting the Basilisk.
+
+_"Sasssly, don't attack humans any more."_
+
+_"Can I leave the cassstle again?_"
+
+_"Where did you go before?"_ Kevin wondered.
+
+_"In the Forbidden Foressst._"
+
+_"In thisss cassse yesss, if you ssstay out of view,"_ Vladmir smiled.
+
+_"Will you come sssee me?"_
+
+_"Of courssse!"_ Kevin's voice rose up.
+
+_"Not usssing those labs would be shameful.
+We know someone who will love to use them,"_ the Russian, imagining Severus's face in advance when he will discover Slytherin's Chamber of Secrets.
+
+_"Thank you, Young Massster."_
+
+<hr>
+
+One hour later, Kevin was back in the Hospital Wing to get back to sleep and surprise the Matron, while Vladmir, in his room, was petting Fawkes, who was sleeping on his stomach.
+
+"So, André, I have a few questions for you..."
+
+"Go on Vlad," the Sorting Hat answered with a sleepy voice.
+
+"Has Dumbledore never noticed your absence?
+Especially Fawkes?"
+
+"Bubus never was Fawkes's master.
+It was Gellert Grindelwald.
+As for me, I usually gather dust during the year, cast away in a closet."
+
+It was not hard to notice the bitterness in the words of the venerable artefact.
+In the time of the Founders, André had taught the arts of the spirit to his students, and he had continued for centuries, even when Transfigured into the Sorting Hat.
+He appreciated his new life, until the Ministry considered this type of magic as dangerous and regulated it.
+
+"I am a magical artefact.
+I am unfit to teach."
+
+"Binns is a ghost!" Vlad took offence, angry at the causes of the Sorting Hat's pain.
+
+"I know.
+As if the Ministry ever was know for being a model of equity..."
+
+A heavy silence fell, then Vladmir thought about a detail.
+
+"Fawkes was linked to Grindelwald?"
+
+"Indeed.
+Wizards and witches tend to forget that they were friends."
+
+"Intimate friends, from what I was told."
+
+"I see you have good informers."
+
+"You could say that you need to know your friends well, and your enemies even better.
+Dumbledore became the latter the day Katya discovered he had named himself my guardiand and had abandonned me to the Dursleys.
+Although it doesn't expalin why Dumbledore stays around Dumbledore."
+
+"He promised Gellert, before he died in prinson.
+SInce then, he awaits his new master.
+Had you got have a second question."
+
+"I have.
+You know Hogwarts so well and you were human...
+Who were you?"
+
+"I have not told my name in... centuries.
+No one knew me enough to know I was human...
+I was called Andrade Slytherin, but my brother always called me André."
