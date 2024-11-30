@@ -569,3 +569,261 @@ Vlamdir put a Muggle cap on his still bald head, which also hid his too pointy e
 
 **"Perfect,"** Vladmir smiled.
 **"Let's go."**
+
+**"Pardon me Highness, but you are quite visible yourself.
+If you allow me..."**
+
+With a snap of his fingers, Katya and Vladmire were clothed in trousers made of a deep blue, thick fabric, pefectly adjusted on Katya and slightly baggy on Vladmir.
+
+**"What's that?"** Vladmir muttered, touching the tick fabric, as their summer capes were changed by light cloth coats, spring green with a sober and elegant cut for the matriarch, and black for her nephew.
+
+Ubista did not answer immediately, carefully looking at their outfits.
+He seemed satisfied by his masters' white shirts, and smiled.
+
+**"Denim jeans.
+It is very fashionable with Muggles.
+I have to admit the fabric is rought, however it is very resistant."**
+
+Vladmir mumbled some more, uneasy in the clothes that sratched his skin.
+Then the three of them walked out of the dark alleyway.
+
+**"Now Madam, where are we going, if I may?"**
+
+**"Dolohov manor.
+It is located in the middle of Muggle London, a few steps from Buckingham Palace.
+I will need you to get two occupants out discreetly."**
+
+**"A kidnapping...
+Who?"**
+
+**"Ilyana Dolohov and Anton Fedovir."**
+
+**"The one who tried to harm the young Master twice?"** the Elf asked bluntly, walking next to Vlamdir.
+They were crossing  a shopping district and were not out of place in the crowd.
+They seemed like a family, invisible among the hundred others.
+
+**"Indeed."**
+
+Katya was about to add something when an overweight child hit her shamelessly before gluing himself to a shop window, also jostling Vladmir, who looked daggers at him.
+
+"Out the way you," the obese young boy growled.
+"Mom, I want the new gaming console!"
+
+"Of course my dear, you worked so well this year," a thin woman smiled tenderly, as her husband, who was as thick as his son, was talking with a woman way to round to be healthy.
+
+**"Who would have thought that genetics were amon the causes of obesity... and congenital idiocy?"** Vladmir groaned as he approached the kid to give him a piece of his mind.
+"Excuse me..."
+
+"You think it's okay shoving people like this?" Ubista asked.
+
+"You little brat," the obese woman yelled, "my nephew said he was sorry, I saw him!"
+
+Vladmir did not answer, offended by all this bad faith, and only lokked at the small Muggle familiy haughtily.
+
+"My I ask who I am speaking to?" Katya asked more calmly, even if her eyes told a different story.
+
+"Oh my..." the thin woman moaned, all the wizarding eyes on her, as her husband puffed up his chest, not impressed by Katya's threatening eyes in the slightest.
+Ubista sniggered when Vladmir mumbled something about hereditary stupidity.
+The Muggle man was stupid not to take his aunt's perfectly visible anger into account.
+
+"I am Vernon Dursley, director of Grunning's Entreprise.
+This is my wife Petunia, my sister Marge, and my son Dudley."
+
+"Katya Annapovna Kemenov-Potter, Duchess of West Siberia.
+I will skip my other titles.
+My son, Lord Potter, and our body guard," Katya introduced herself, trying not to laugh at Vlamdir's mocking comments.
+
+"Po... Potter?" Petunia stuttered.
+"Like... James and Li... Lily?"
+
+"Indeed.
+James was my brother.
+I am more than happy that my nephew never stepped in your home, judging by your son's education."
+
+Katya looked at the kid with pity, while he was still yelling that he wanted the infamous console, completely ignoring the adult discussion that happened next to him.
+The contrast between the spoiled brat and her own nephew, although they were the same age, was incredible.
+
+"You are one of those... those monsters?" Vernon Dursley huffed and puffed.
+"One of those good for nothing that poison our existence?
+We are honest citizens!"
+
+Katya squinted, threatening.
+She noted from the corner of her eyes that a shop owner was pointing them to two uniformed people, a few meters from them.
+
+"Good for nothing?
+If you did not understand already, Dursley, I am a hereditary peer of the kingdom."
+
+"And I am..."
+
+"Is there a problem, ladies and gentlemes?" a Muggle that the wizards quickly identified as a policeman interrupted them.
+They had decided to intervene to avoid a brawl so close to the royal palace after the shopkeeper's silent call.
+
+"Indeed," Katya calmly declared with a cold smile.
+"Those people... just insulted us.
+I wish to speak to your supervisor.
+It is unacceptable that one of the peers of the kingdom is insulted without consequence."
+
+"The Lady is right," the shopkeeper agreed, an easy-going and affable red-head, who was listening to the altercation from the start.
+"Their kid shoved her and instead of apologising, the parents started to insult them.
+I'm not bright, but I know a few House of Lords peers, including the Potters.
+They liked my stuff.
+The old Potter was a good client, quite excentric, but amicable for a Duke.
+His son was a good fellow as well."
+
+The Dursley seemed to choke in surprise, as Vladmir was carefully looking at the shopfront.
+He managed to percieve a Muggle dissumulation spell that hid the full name of the shop.
+Apparently it was a magical shop, _Oward's Technologies and Wizardries_...
+
+"A Duke?
+He was unemployed!" the obese woman yelled.
+"He was a good for nothing alcoholic who killed himself and his wife in a car crash."
+
+Vlamdir looked daggers at her, as Katya retorted with a mean look that as a Duke, he did not need to work apart from managing his assets.
+Only Ubista that the woman named Marge was starting to slowly but surely inflate.
+
+**"Vlamdir Vassilievitch, it is not reasonable,"** the House Elf chuckled, before adding a nuance.
+**"Not in front of all those Muggles."**
+
+A growl answered him, but the woman stopped inflating.
+It was not the day to cross the young Kemenov heir, and Ubista promised himself to closely observe at Vlamdir to prevent a new accidental magic incident because of his anger.
+
+Envetually, as the Dursleys were getting increasingly angry, they were all taken to the police station, with the policemen's apologies.
+Katya reassured them with a smiled, explaining that they were not responsible for the actions of her sister-in-law's family's actions, who never understood what kind of man she had married.
+
+"I think it might be for the better Madam," the policeman smiled, a mature man with a thick moustache.
+"I belive those people would have tried to take advantage of your name's influence."
+
+The three russians looked at the Dursleys be taken down by the policemen as they cried foul, and a gloomy smile stretched Vladmir's lips when he looked at one of the imposiing private mansions of the avenue.
+
+**"How about we get to business?"**
+
+Ubista only needed a few minutes to infiltrate the home defenses and properly knock out the two targets of the Kemenovs, as Katya and Vladmir discreetly Disappeared to their clan's home turf.
+They could not stay in England for what they planned to do...
+
+When both of them woke up, they had the unpleasant suprise to find themselves in the middle of the Siberian tundra.
+They were stripped from their wand and tied up, and they could only note the presence of three people they hope to never meet: Vlamdir and Katya Kemenov, as well as a strange House Elf whose name they knew despite their hopes.
+Ubista the assassin.
+
+<hr>
+
+The next morning, Lucius Malfoy got up as usual around 6 in the morning and got down to the small drawing room to get breakfast.
+He was surprised to see his son there, who tended to sleep until 11 or so in the holidays.
+
+Quite worried by Draco's attitude, who seemed both nervous and scared, he took the time to pour himself some tea before opening the morning issue directly on page 8, as his son told him.
+He was wondering what trash Rita Skeeter could have invented to worry Draco so much.
+He had barely swallowed his first mouthful of tea before spitting it out as he read the article's title.
+
+> A wild hunt started in the middle of Knockturn Alley
+>
+> It had been centuries since this curse was invoked in the middle of magical London.
+> Yesterday, in the early afternoon in the Seven Black Dragons bar, the regular patrons witness an altercation get out of hand.
+>
+> Mundingus Fletcher, a years-long regular of this bar, told us he saw a small fully-masked man throw his enemy across the room.
+>
+> "I tell you, when I heard the man's name, I knew there would be spectable, and not a pretty one.
+> Darerine, he was," Mr. Fletcher told our reporter.
+>
+> Felix Demetrovitch Darerine was an Russian necromancer, known by the Minstry for his help to the Dark Lord before his fall.
+> He reportedly gave him most of the Inferi used during the war.
+>
+> The Wild Hunt, invoked at quarter to two, rode across Knockturn Alley, then Diagon Alley.
+> The Prey, following the Primitive Laws of Magic, could not Disapparate to escape it.
+> The Hunt eventually stole him away one hour later, on the steps of Grigott's bank, where Felix Darerine tried to finde refuge.
+>
+> This curse, among the oldest and deadliest in the world, is not illegal by itself.
+> Its formula was forgotten until know, and the Ministry for Magic never took the time to outlaw it.
+> This situation might change soon.
+>
+> Felix Darerine' murder in the middle of Diagon Alley prompted an investigation for premeditated murder.
+> The Aurors are looking for two Russians, a mother and her son, noticed earlier in Knockturn alley.
+>
+> "Those two Russians are invited to come to the Auror Office, in order to answer a few question about this situation," famous captain Alastor Moody declared on the scene a few minutes after the start of the curse.
+>
+> Felix Darerine is not the only Russian citizen who died horribly those last 24 hours (see our article on page 13).
+>
+> The Primitive Laws - page 10
+>
+> The old curses still allowed, but for how long? - page 11
+
+Lucius immediately turned the pages and groaned.
+What had prompted Katya and Vlamdir to bring their Clan War on English soil, by Merlin?
+They were not the type to hunt their targets in foreign spaces without telling the ruling Court beforehand.
+
+> Assassination of Russian citizens on English soil
+>
+> Two Russian citizens, Ilyana Saprovna Dolohov, aunt of the infamous Death Eater Antonin Dolohov, as well as Ivan Borislav Fedovir, leader of the clan of the same name, were discovered murdered in Dolohov manor, London.
+> Those two deaths add to the one of Felix Demetrovitch Darerine in the middle of Diagon Alley (see page 8).
+>
+> The exact circumstances are as of yet unexplained, but according to the forensic Mediwizards on the case, they seemed to be excruciating.
+> The tortue they suffered appears to have lasted for hours, and seemed to be done to extract information.
+>
+> "The methodical way the act was perpetrated is caracteristic of a questionning" an Auror explains.
+> "The muderer needed a deep knowledge of human body and Dark magic to get the result we sa on the corpses."
+>
+> "The death of Mrs. Dolohov and Mr. Fedovir follow cardiac arrest.
+> This cand be linked to two particular causes.
+> Either their heart went into fibrillation because of the extreme torture both victims were under, or a Death curse.
+> The Dark Magic emanations detected on the corpses are too important to detect the specific singature of the Avada Kedavra," Mediwizard Pedgins told us.
+>
+> The Aurors on the case follow hypotheses on Lady Dolohov's family.
+> The Curse-Breakers called to check the manor protections declare that no one could pass the home's protections without permission from the owner.
+> Questions on the secrets of Lady Dolohov and Lord Fedovir remain a mystery.
+
+Lucius stopped reading and turned to other pages, reading over the financial pages and the economical column.
+He stopped when he realised that he had not even looked at the front page and sighed.
+What could be worse than three deaths as horrible as those.
+
+> Sirius Black escaped from Azkaban.
+>
+> Siruis Black, candidate for the title of worse criminal of our time, managed the incredible feat of escaping from Azkaban fortress.
+> The Aurors do not know how Black could leave his cell, located in the maximum security zone, but recommend great prudence.
+>
+> As a reminder, Black not only killed 13 people with a single spell, but also betrayed his closest friends, the Potters, by giving their location to You-Know-Who.
+> His mental state, already unstable at the time of his capture, worsened due to the effects of the Dementors, and we invite wizards and witches to signal the slightest suspect event that could help our investigators stop Sirius Black.
+>
+> Sirius Orion Black - Story of a traitor and criminal - page 2
+>
+> Top 10 most secure prisons in Europe - page 5
+
+The Lord swore unelegantly, making his son jump, not used to this harsh laguage coming from the so respected Lucius Malfoy.
+The was going to be another Russian hunt on English territory...
+
+"Father... Sirius Black is my mother's cousin, is he not?" Draco asked with a small voice.
+
+"Indeed.
+He was also Vladmir's godfather before..."
+
+Lucius fell silent.
+It had been years since he last thought about Narcissa's cousin.
+But even if at the time he had not questionned Sirius Black's arrest, he rememberd two things, well, missing.
+
+First, he never saw Black in Little Hangleton, the Dark Lord's stronghold, when he as the right-hand man of the Master.
+It would not have been the first time he never met a new Death Eater, but it was till surprising...
+
+Secondly, he did not remember attending Black's trial.
+Indeed, he could have been busy saving face to avoid imprisonment, but he did not remember receiving any summon...
+He would have to check his archives and the Ministry's.
+
+Thirdly and finally, he had always suspected Sirius had betrayed his father, Orion Black, in the Triad, especially after he had learned of his betrayal.
+However, he know new that it was Narcissa...
+
+Lucius, lost in his thoughts, kissed his son's forehead before going to his office.
+The end of the holidays was going to be busy.
+The Kemonovs would hunt again...
+
+And he was definitely not wrong.
+Thousands of kilometres away, a young Russian was also having breakfast while reading _The Red Dawn_. He heard a door open but did not look up, recognising Sergei's muted walk.
+
+**"Sirius Black escaped."**
+
+Vladmir raised his head brutally, squinting his eyes.
+
+**"Escaped?"** he slowly repeated.
+**"This dog escaped from one of the best prisons in Europe?"**
+
+**"Katya gave you the green light to go, and we have a pass with all the Courts.
+I have orders to go with you,"** the vampire explained.
+**"Your presence will only be necessary for Dumbledore's trial.
+The rest of the time will be focused on the hunt for Black."**
+
+Indeed, the end of the holdiays would be busy.
