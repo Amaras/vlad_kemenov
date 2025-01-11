@@ -351,3 +351,173 @@ The one I thought was your mother is Katya Kemenov, isn't she?"
 
 Vladmir did not answer and Alastor Moody finally took the time to look at the kid.
 Albus Dumbledore was both fascinated and terrified by this child.
+An unhealthy obsession in his opinion, while his fear was understandable.
+James and Lily Potter's son's charisma was incredible.
+He guess that the young Kemenov normally kept it hidden, but he radiated power and confidence...
+As well as Dark magic.
+
+"You know your aunt and your best friend's father have an affair?
+Lucius Malfoy is a known Death Eater, she should..."
+
+"Why are you trying to involve yourself in the private life of the Kemenov matriarch and Lord Malfoy?"
+
+Alastor tilted his head.
+Alright, he would not talk about the aunt.
+The kid had just heavily insisted on the titles, reminding them that they ought not to make enemies of him, as he belonged to a powerful family, with powerful allies.
+
+He barely had time to react before a spell flew past him.
+Auror Shacklebot did not have this chance, and was hit squar on by another spell.
+
+"What's your problem kid?" Alastor groaned.
+He did not get his wand out, however.
+He was not there to fight, and he slowly moved to his colleague.
+Stunned.
+
+"I have warned you.
+Last chance.
+What... do... you... want?"
+
+"I have two questions.
+Why kill Darerine, Dolohov, and Fedovir?
+I swear on my magic that I will not denounce you."
+
+"Nobody attacks a member of clan Kemenov, nor the memory of the dead.
+They were in England, so we struck in England," Vlad let out, after he saw Shacklebot begrudgingly imitate Moody.
+
+The old Auror inaudibly swore.
+The infamous Russian clan wars...
+Not that he missed the deads; two Death Eaters and one of their accomplices were mere vermin.
+However, it was a one less notch on the Aurors' belts.
+It felt that they would be unsolved murders.
+
+"Why did you not inform your superiors of my presence?"
+
+"You still are Harry Potter, the Boy-Who-Lived, even with another name.
+Plus, I personally don't consider the death of three Dark Mages worthy of grief."
+
+A strange smile stretched Vladmir's lips.
+
+"I am a Dark Mage myself.
+Accord to the old names, of course."
+
+Alastor Moddy thought he was about to faint.
+
+"A curse like..."
+
+"It would not have been possible for an average wizard," Vladmir agreed.
+"And I do not consider my birth name is a valid reason."
+
+"You reek of Dark Magic," Moody explained, smiling, staring at Vladmir's glacial gaze.
+"However, I have quite the instinct, kid.
+And it's screaming at me that you are untouchable.
+The rare times I did not listen to it, bad things happened."
+
+"What is your second question?"
+
+"Could you... cancel the trial?"
+
+Vladmir squinted, and Moody did not have time to react.
+He got hit by the spell cast by both wands simultaneously and painfully hit the wall, before getting tied up.
+
+"Dumbledore will pay for his criems, Auror Moody.
+Do not think I will ever help you save this bloody manipulator!"
+
+Alastor opened his eyes wide when a wand was pointed towards his forehead, and he sighed at himself for falling for it hook, line and sinker.
+
+<hr>
+
+He was still fulminating as he was in the stands of Audience room 7 of the Wizengamot.
+To be found unconscious in fron the the entry of the Ministry had put a dent in his and his colleague's prides.
+What could they say?
+'We were had by a thirteen-year-old'?
+
+They had taken the time to attent the trial outside of working hours, to try and help their leader and friend.
+Although Alaster and numerous former members of the Order of the Phoenix had started to doubt Dumbledore for some time, he was still an emblematic character, and the leader of the Light...
+
+Moody swore to himself when he saw the kid enter the room and gaze at him, smiling.
+He never saw Katya Kemenov, and her ressemblence to James Potter hit him hard.
+
+His heart ached, as he saw James and Sirirus Black continue their pranks in the Auror Preparation School.
+This woman was the spitting image of her brother...
+
+He grimaced a bit when Lucius Malfoy approached them, then, strangely, Augusta Longbottom.
+He noted that Vladmir was walking towards a group of youngsters with serious faces, probably all Pure-Bloods, judging by their bearing and their dark but elegant outfits.
+He recognised the Malfoy and Longbottom sons-- this association gave him weird shivers, whatver the generation-- then, to his great suprise, Arthur Weasley's twins approached them and started to talk in a low voice.
+
+"Ladies, Gentlemen...
+Please take place, the session will start in a few minues."
+
+Alaster was astounded to see two of these Pure-Bloods go towards the witness benches, where several families of Muggle-Born students were sitting.
+The young girl with an appeasing aura and the boy who oozed gentle strength were Muggle-Borns?
+
+"Kevin Entwhisle and Hermione Granger, Ravenclaw and Gryffindor, both Muggle-Born, although they don't seem like it.
+They were presented during the Malfoys' ball."
+
+Alastor jumped, before smiling at the woman who interrupted his thoughts.
+
+"Hi Minnie!
+How did you know what I was thinking?"
+
+"I simply followed your gaze Aly," Minerva McGonagall laughed in response.
+
+The Auror made some room to let his old friend and the Hogwarts Transfirguration Professor sit down next to him.
+Once she put away her severe teaching robes and her bun, she looked twenty years younger, especially if she smiled.
+
+"You're not a witness?"
+
+"No, Albus hid too many things from to for me to be able to defend him objectively," Minerva sighed, pinching her lips.
+She pushed a strand of gray hair behind her ear, her attention on the Kemenovs.
+
+"So that's them..." Moody eventually whispered.
+
+"Huh?"
+
+"Rumous said that Lucius Malfoy presented four children at the last Saturnalia, including Muggle-Borns.
+The Pure-Bloods there confirmed nothing, and the press thought that it was a bad joke trying to stain the Malofys' reputation."
+
+"Not at all, Auror Moody.
+Professor McGonagall..."
+
+"Mr. Malfoy," they both greeted him back.
+
+"I have no regret to have presented Ms. Granger and Mr. Entwhistle during the Winter Solstice ball.
+They are both perfectly aware of our traditions and are the perfect example of what Muggle-Born wizarding education should be."
+
+And Lucius Malfoy left them on those last words to get to his Lord seat, as the old Auror was speechless.
+Minerva, while she thought about the Pure-Blood's words, looked around her.
+Nobody was looking at them.
+
+"Do you think Albus will be dismissed from his responsibilities?" she asked, worried.
+She did not see the thoughtful emerald green eyes on her.
+
+**"What are you thinking about, Kitten?"**
+
+**"I'm woundering what the old McGo is saying."**
+
+**"Have some respect for your elders, young man,"** Sergei whispered, listening carefully or the Kemenovs.
+**"The Auror is convinced Bubus is done, and the cat is afraid."**
+
+**"Stop with this knickname,"** Katya whispered, before mumbling to herself that she thought she had two children.
+
+**"We have a bet in the Palace,"** Sergei said with a smile.
+
+Katya closed her eyes, wondering what her guards had made into a bet this time.
+The latest closed one about Hogwarts was about the time before Vladmir had to spend time in the Hospital Wing.
+She had won by betting on one year.
+She was the closest, all the other ones thought it would have happened earlier.
+There was also the one on the House of the Heir, the one on the possibility they played Quidditch, or that he ended up attacked by the Basilisk...
+In short, the Kemenov clan was happily betting.
+And Vlad generally got richer.
+
+**"What bet?"** she finally asked, curious.
+
+Sergei leaned towards her, so that only Katya could hear.
+
+**"Will Vlad call him Bubus in front of the entire Wizengamot?"**
+
+Katya rolled her eyes, sighing deeply.
+She regretted not having her wand, not able to cast some sense into her right-hand man, as they were taken before entering...
+And she could feel Vladmir's nervousness, even if he did not show it.
+He could not stand being disarmed.
+
+The young Russian felt his robe around and felt the characteristic shape of a dagger that he escaped controls thanks to advanced camouflage spells, before looking around.
