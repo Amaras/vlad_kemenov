@@ -520,4 +520,40 @@ She regretted not having her wand, not able to cast some sense into her right-ha
 And she could feel Vladmir's nervousness, even if he did not show it.
 He could not stand being disarmed.
 
-The young Russian felt his robe around and felt the characteristic shape of a dagger that he escaped controls thanks to advanced camouflage spells, before looking around.
+The young Russian felt his robe around and felt the characteristic shape of a dagger that had escaped controls thanks to advanced camouflage spells, before looking around.
+Contrary to the first trial, which was a private matter and thus in camera, this second one was public, and many journalists and curious people were present.
+
+All Wizengamot members were there, apart from Dumbledore.
+Vladmir had delegated his vote to Damocles Rowle, and he did not understand why, like last year, Dumbledore was not represented.
+It was unjust, but if a member of the Winzengamot could not be present, he could give a proxy vote, even as the accused.
+It was one of the advantages of being an old family, which Vlamdir had immediately used.
+
+He discreetly nodded to Amelia Bones, Theodore Nott, and Severus Prince, who sat for his first time, before looking over the other ones.
+Apart from several parents of Hogwarts students, he recognised the three representatives of the International Confederation of Wizards from the previous time.
+As well as the five membres of the Hogwarts Board of Governors who did not have a seat at the Wizengamot.
+That was interesting...
+
+Vlamdir leaned towards Sergei and whispered a few words in his ear.
+The vampired looked at the old wizards of the Board of Governors, and shook his head.
+
+**"Non, it's probably already decided."**
+
+Vlamdir shrugged and went back to his contemplation.
+The clerks, the three counsels, the twenty or so witnesses...
+That was a lot of people.
+
+Amelia Bones rose up and hit her gavel three times.
+All fell silent, apart from the flashes of a few journalists taking photos.
+
+"Today, we will cover the complaint filed by Katya Annapovna Kemenov against the Hogwarts School of Witchcraft and Wizardry, and its Headmaster, Albus Percival Wulfric Brian Dumbledore, as well as the associated complaints.
+The defendants are indicted for endangerment of boarded students, agravated negligence due to the Muggle origin of the plaintiffs, as well as breach of trust.
+Members of the tribunal, the complaints have been reported in the dossiers that were given to you."
+
+Papers ruffled, as the members of the Wizengamot looked over the documents.
+
+"Secondary complaints, treated simultenaously as made possible by article 178.2 of the Penal Procedure Code, concern the Kemenov, Finch-Fletchley, Entwhistle, and Crivey families.
+They bring a civil case against Hogwarts.
+Finally, Hogwarts brings a civil case against Albus Dumbledore."
+
+Stunned whispers could be heard, until Amelia Bones asked for silence.
+It was exceptional to see an institution publicly bring a case against its representatives as publicly.
