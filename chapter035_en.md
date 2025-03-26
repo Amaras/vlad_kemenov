@@ -557,3 +557,70 @@ Finally, Hogwarts brings a civil case against Albus Dumbledore."
 
 Stunned whispers could be heard, until Amelia Bones asked for silence.
 It was exceptional to see an institution publicly bring a case against its representatives as publicly.
+
+"Clerk, please take note.
+Mister Bulbragon, the floor is yours for your opening statement."
+
+"Thank you Judge Bones," the Kemenov's lawyer declared, representing the other plaintiffs as well, moving to the center of the room.
+"Ladies, Lords, gentlemen...
+I am sure most of you have either children or family members studying in Hogwarts.
+You yourselves certainly graduated from that prestigious school.
+For seven years, Hogwarts is a welcoming home for our children.
+They learn magic, of course, as well as how to be a part of society, friendship, love...
+It is a world of discovery and adaptation.
+Hogwarts is a second home.
+We are all interested in safeguarding it to make sure the future generations will live the most beautiful years.
+It is thus to save our home that we are gathered today.
+
+"Albus Dumbledore became Headmaster in 1956.
+He has led the school admirably well for nearly the last forty years.
+However, the last two years brought dangers over the future of the Magical world!
+Indeed Ladies, Lords and gentlemen.
+You heard me right: the future of the magical world.
+That is what the students of this wonderful world are.
+The future!
+
+"'What dangers?' you might ask!
+Lord Lovegood.
+Lord Malfoy.
+Lord Diggory.
+Lady Longbottom.
+I dare say you have family members currently enrolled at the school."
+
+All four slowly nodded as whispers rose.
+The lawyer had purposely families emblematic to each house and known for ther political weight.
+
+"What do you respond if I say... 'prejudice'?"
+
+"Objection, leading the jury!" both the School's and Dumbeldore's lawyers yelled.
+
+"Sustained.
+Mr Bulbragon, you are only allowed to ask the public."
+
+"It will be enough your Honour.
+Let's say..."
+The plaintiff's lawyer took the time to think about it, then an amused smile stretched his lips.
+
+"Let's say Mister Frederic Weasley, Mister Lovegood, Madam Sprout, and for Slytherin... Mister Greengrass.
+What can you tell me about prejudice?"
+
+"Gryffindor and Slytherin," Fred Weasley immediately answered.
+
+"Can you tell me more about that?"
+
+"Objection, leading question!" Hogwarts' lawyer intervened.
+
+"Overruled.
+Mister Weasley, are you aware that by answering this question, you become a witness?"
+
+"I am, Minister."
+
+A short-lived halo surrounded the redhead at the unspoken magical oath and Fred sat up.
+
+"Nearly universally, Gryffindors hate Slytherins, while Slytherins hate us back."
+
+"Can you say why?"
+
+"I have no idea, sir.
+A rumour says that Slytherins are all Dark Mages and Death Eaters.
+It is repeated to us all the time since our first year, and it brings many dissensions, insults, among other pleasant things."
