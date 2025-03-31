@@ -623,4 +623,79 @@ A short-lived halo surrounded the redhead at the unspoken magical oath and Fred 
 
 "I have no idea, sir.
 A rumour says that Slytherins are all Dark Mages and Death Eaters.
-It is repeated to us all the time since our first year, and it brings many dissensions, insults, among other pleasant things."
+It is repeated to us all the time since our first year, and it brings many dissensions, insults, among other pleasant things.
+Every one who studied in Hogwarts know what I am talking about."
+
+Many people nodded in the public, even among the Wizengamot, while Dumbledore was whispering with his lawyer.
+
+"What do you say about this, Mister Greengrass, as a former Slytherin student?" Bulbragon called out to him.
+
+The man stood up and the same magical halo surrounded him, as a witness.
+
+"Mister Weasley summarised the situation well.
+For us Slytherins, Gryffindors are immature idiots, incaoable of thought.
+They spend their time discriminating and belitteling us.
+'Snake', 'budding Death-Eater'...
+We hear insults daily, and often respond to them indeirectly."
+
+"Ladies, Lords and gentlement, please note the use of 'rumour says' from Mr. Weasley and 'Gryffindors are' from Mr. Greengrass.
+Madam Sprout, Mister Lovegood, what do you think about those declarations?"
+
+"They are unfortunately exact," Professor Sprout sighed, the Quibbler's director nodding along.
+"Hufflepuffs are considered weak and suffer mockery..."
+
+The short pudgy woman fell silent, sadness visible on her face.
+
+"We send our children in a school so that they learn life within our society, tolerance, self and mutual respect.
+Houses were created in order to create a sane competition.
+However, the analysis is upsetting!
+Hate!
+Prejudice!
+Contempt!" the lawyer enunciated.
+"What has the Headmaster done to mitigate this?
+He has scheduled lessons between enely Houses as much as possible.
+For forty years, three quarters of the lessons between Slytherin and another House has been with Gryffindor.
+For forty years, this has only amplified scorn between the two Houses.
+Why did he not think of another solution?
+Prejudice, therefore detrimental competition!
+You will find within this vial some interesting discussions between Hogwarts students.
+I ask that oly the jury is shown this evidence to protect the students' anonymity.
+Because of those facts, I ask for Albus Dumbledore's immediate resignation as Headmaster of Hogwarts."
+
+"The Court notes your grievances, and will watch the memories in camera," Amelia Bones declared, sending a clerk to collect the vial.
+"Please continue."
+
+"Thank you Judge Bones.
+I will now come to the negligence question, strongly correlated to the partiality problems I talked about previously.
+This passed school year saw several accidents happen.
+Three Muggle-Born students were petrified.
+We will see the cause lated," the lawyer eluded before questions were asked.
+"The solution to free them was straightforward: a Mandrake Restorative Draught.
+One vial trades for 23 Galleons at most apothecaries.
+For the Muggles present, this is around 120 British pounds.
+It is an expensive potion, but quite ridiculous compared to the tuition.
+However, Professor Dumbledore refused Madam Pomfrey's proposition as Hogwarts' Matron and renown Mediwitch!
+He argued that Hogwarts had always prepared all its healing potions and that they had an more than competant Potions Master.
+I do not doubt Lord Prince's talenthis numerous creations greatly pushed knowledge forward, but I do doubt Professor Dumbledore's lack of will.
+Madam Pomfrey, can you swear that all of the school's Potions come from Severus Prince's laboratory."
+
+"No sir.
+A dozen or so of our Potions are bought in, as they are extremely long and tedious to brew.
+Severus...
+Professor Prince does not have time to brew them during the school periods with his lessons, and his vacations are his own free time," the Matron declared with embarassement, looking at her Headmaster.
+
+"Therefore the Headmaster's argument is refuted.
+Professor Dumbledore, why did you refuse to buy this potion when you knew that Mr. Crivey, then Mr. Finch-Fletchey and Mr. Entwhistle would lose one full year of lessons?
+You endangered those children's school years to save 69 Galleons."
+
+"You..."
+
+"Silence Mr. Dumbledore!" Lucius interfened, as the Headmaster had stood up, face purple in anger.
+"Your time to speak has not come yet!
+Please carry on Mr. Bulbragon, your talk is compelling."
+
+"Thank you Lord Malfoy.
+As i was saying, Mister Dumbledore has completely destroyed the school year for those children.
+The parents would have payed for the potions themselves had they known of their existance.
+However, they are all from the Muggle world, and thus have no knowledge of Mediwizardry, and the school never informed them.
+A lie by ommission that shows the Headmaster's contempt for his students.
