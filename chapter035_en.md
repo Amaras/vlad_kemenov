@@ -699,3 +699,91 @@ As i was saying, Mister Dumbledore has completely destroyed the school year for 
 The parents would have payed for the potions themselves had they known of their existance.
 However, they are all from the Muggle world, and thus have no knowledge of Mediwizardry, and the school never informed them.
 A lie by ommission that shows the Headmaster's contempt for his students.
+For the prejudice caused to the families and the students, I ask for 5000 Galleons each in damages!"
+
+"We take not of your grievences," Cornelius Fudge declared.
+"Please continue."
+
+"Now for my last count of indictment.
+I will leave the breach of trust count to my colleague Mister Owells, representing Hogwarts.
+I will only focus on a problem that has been unacceptable for at least two years.
+The school's safety.
+Last year, the Philosopher's Stone was hidden in Hogwarts!
+This year, a Basilisk spread terror in the school!
+Why have the Board of Governors and parents of students never been informed of the dangers?"
+
+"Please explain," Theodore Nott asked, as many whispers rose up and booing started towards the Headmaster.
+"Are you talking about the mythical Philosopher's Stone?
+And a Basilisk?"
+
+The lawyer took the time to take a sip of water, satisfied to see the whole room hanging onto his every word once more, before pointing to the public's stands with a sardonic smile.
+
+"Mister Flamel here will confirm that he put the Stone in his friend Albus Dumbledore's hands to safeguard it in Hogwarts."
+
+Surprised cries rang out as a couple that had been ignored before was reapeatedly photogrpahed.
+Nicolas Flamel and his wife had rarely gone out since the beginning of the previous century.
+Their presence was extremely rare, and was bad news for Dumbledore.
+
+"The Stone was guarded by a cerberus.
+The same cerberus who was hidden in a corridor of the third floor.
+What were the words again?
+'The corridor of the third floor of East Wing is strictly forbidden, or you will die in atrocious circumstances'.
+This is exactly what is needed to make curious students try to got there!
+I will quickly pass over the Troll incident, Mister Malfoy had filed a complaint last year, and will only say that the Headmaster, knowing the creature was in the dungeons, sent the Slytherin students to their common room!
+For those who do not know, their common room is precisely in the dungeons."
+
+This time, angry cries rang out, and the lawyer patiently waited for the calm to come back, under threat of an adjourned trial.
+
+"I think I needn't explain the dangers of having a Basilsik on the school, expecially one linked to the Heirs of Slytherin.
+Heirs among whom was Tome Riddle.
+Mister Dumbledore, for the endangerment of students, will will ask one more time for your immediate resignation, and would like to ask you another question..."
+
+"Objection!" the Headmaster's lawyer yelled.
+
+"Overruled," Damocles Rowle yelled back.
+"Ask your question."
+
+Alister Bulbragon turned to the old wizard and gave him a terrifying one, identical to the one on the lips of the Kemenov Clan membres.
+
+"Professor...
+Why did you never report the presence of Lord Voldemort in the school premises two years in a row?"
+
+His words had quite the effect.
+
+Screams of fear rang out as other yelled in denial.
+The lawyer was booed and called a crazy liar, be he stayed stoic against the aggressions, waiting for the Wizengamot to intervene.
+
+A recess was announced while the public was escorted out of the court room.
+Eventually, only witnesses as well as the representatives from the ICW and two journalists could stay.
+Vladmir and Kevin were the only Alliance students who stayed.
+
+"Let's continue," Amelia Bones declared wearily.
+"Mister Bulbragon, proof of your accusation were noted.
+However, on what ground do you base your declaration of You-Know-Who's presence?
+He died twelve years ago."
+
+"He did not, Judge Bones.
+Mister Kemenov?"
+
+Vladmir stood up and carefully looked at the members of the jury.
+
+"I met Voldemort once, this year."
+
+"Would you testify under Veritaserum?" Dumbeldore's lawyer asked.
+
+"I would."
+
+"You note your acceptance.
+Mister Owells, please come to the bar to represent Hogwarts."
+
+The school's lawyer, a small and nervous man, approached.
+
+"Judge Bones, Members of the Wizengamot.
+I regretfully have to say that, contrary to my esteemed colleague, I will only do a short statement, and will avoid spectacular revelations."
+
+Some discreet laughs could be heard responding the the lawyer's tentative humour.
+
+"I will only touch two points.
+The Hogwarts Board of Governors had full confidence in Albus Dumbeldore.
+As Mister Bulbragon said, he has been Headmaster for forty years, and was fully competent until recently.
+My clients admit that they had placed a misguided blind confidence in the Headmaster, which resulted in disastrous responses.
