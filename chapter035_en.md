@@ -786,4 +786,141 @@ Some discreet laughs could be heard responding the the lawyer's tentative humour
 "I will only touch two points.
 The Hogwarts Board of Governors had full confidence in Albus Dumbeldore.
 As Mister Bulbragon said, he has been Headmaster for forty years, and was fully competent until recently.
-My clients admit that they had placed a misguided blind confidence in the Headmaster, which resulted in disastrous responses.
+My clients admit that they had placed a misguided blind confidence in the Headmaster, which resulted in disastrous results.
+Measures were taken.
+Albus Dumbledore's removal from Hogwarts teaching staff has already been notified, and a new article in the Charter ensures that an audit of the entire staff will be conducted for the start of the school year, and every five years afterwards."
+
+Vlamdir softly chuckled as he noticed the suddenly pale face of the former Headmaster.
+Apparently, he has not been informed of his sacking.
+Judging by Lucius's smile, he has something to do in this decision...
+And Dumbledore's lawyer's pensive face was quite the good omen...
+
+"Hogwarts is at fault, passively, we admit it," Mister Owells continued, "and for this we accuse Albus Dumbledore of breach of trust and reckless endangerment.
+We demand for 10 years imprisonment, as well as damages amounting for 10,000 Galleons, which will be used to create a new subject and hire a Professor of Wizard Studies."
+
+"Your grievances have been noted.
+Mister Copfield, counsel for the Defence, please give your opening statement," Judge Bones declared coldly.
+
+Dumbeldore's lawyer stood up, perturbed by the sudden declaration from the Board of Governors, then said the most unexcpected thing.
+
+"I refuse to defend Mister Dumbledore."
+
+The journalists opened their eyes wide, astounded by what they heard, as was the rest of the room.
+
+"I... I beg your pardon?" Amelia Bones stuttered.
+
+"I am a Sltyherin, Madam.
+Contrary to prejudice, I hate You-Know-Who.
+Knowing that my former client never advice the authorities, consciously lied, and endangered hundreds of children, and the magical world in general...
+I have some ethics, Judge Bones, and I refuse to defend this man!"
+
+"You-Know-Who's survival has not yet been established," Lady Longbottom reminded him.
+
+"If Mister Kemenov accepts Veritaserum, it's the best of proofs for me."
+
+"Very well, Mister Copfields...
+I will then invite you to the public stands," Lady Bones declared, still shocked.
+
+Whispers among the distinguished members of wizarding justice and the public continued for a few minutes, then Cornelius Fudge asked Dumbeldore to present his defence.
+Unfortunately for him, it was minimal.
+The sudden defectio from his lawyer had visibly shaken him, and he somehow still tried to justify his actions.
+Knowing that he still believed after forty years in a possible friednship between the Houses made many people laugh.
+Knowing that he had refused to buy the potion for the petrified students because of a lack of funds had enraged the members of the Board of Governors.
+Only his protest about the Basilisk seemed coherent.
+
+"A Basilisk kills, it does not petrify!
+How could I have known that this magical creature was roaming the school?"
+
+"Thank you...
+You can sit down, Mister Dumbledore.
+We will see the evidence, then it will be time for questions."
+
+The audience went to recess for an hour, in order to show the Wizengamot all the evidence, then the trial continued.
+
+"We will start with the accusations over safety.
+Mister Flamel, do you accept the use of Veritaserum?"
+
+"I do, Judge Bones."
+
+After having asked the jury and counsel the same question, Amelia Bones invited the alchemist to the bar, and a dose of Potion was administered under the attentive eye of a Mediwizard from St Mungo named Matthew McCallum.
+After a few standard questions, the questioning began.
+
+Nicolas Flamel confirmed the presence of the Philosopher's Stone in the school.
+He certified that the Headmaster had asked him for the permission to study it.
+They had worked together in the past, and he had wanted to restart his research.
+
+"Where is the Stone now?"
+
+"Someone stole it while he was supposed to safeguard it, and sent it to me, along with a memory showing that Voldemort tried to steal it.
+The full memory shows me that Albus had put up a trap for the Dark Mage.
+He lied to me, and I cut all relationships with him."
+
+"Thank you Mister Flamel.
+Mister Valvett, as a representative of the Board of Governors, did you know about the Stone's presence?"
+
+The answer under Veritaserum was negative.
+It was the same for the Basilisk.
+
+"Did you at least know that students were petrified?" a member of the Wizengamot asked.
+
+"We did, but did not know the reason.
+Mister Dumbledore told us about a Gorgon, with Mister Lockhart's testimony."
+
+On the witness bench, it was too much for Kevin, who laughed out loud mockingly, catching angry glances.
+He stood up at the Wizengamot's request and explained why he was laughing.
+
+"I am sorry, I deeply doubt the veracity of Mr. Lockhart's, or rather Marcus O'Balley's testimonial, especially since all of his exploits are stolen."
+
+"How do you know that?" Lucius asked, holding back laughter despite his surprise.
+The Irish Court would love this...
+
+"Some sure source told me, and they will remain anonymous.
+Mr. O'Balley confirmed it and tried to cast a Memory Charm on me afterwards."
+
+"You escaped it?" Augusta Longbottom.
+"You were in second year, and he was a professor!"
+
+"I can run very fast," Kevin answered seriously, making some spectators laugh.
+He repeated his declarations under Veritaserum, and an iquiry over the Profesor of Defense Against the Dark Arts was started.
+
+"Let us go back to the subject at hand," Theodore Nott said.
+"Mister Valveltt, what motivated the creation of this new subject?"
+
+"Miss Hermione Granger's and Mister Kevin Entwhistle's integration in society.
+They perfect knowledge of our world, which most of ous could see at Lord Malfoy's ball, showed us the importance of teaching our tradictions."
+
+"What do you expect to do for the students and the prejudice?"
+
+"We are thinking about creating study groups.
+A student per House.
+The group effect is one of the main problem, and having the students away from the Housemates a few hours could be beneficial.
+We will start them next year," Valvett explained.
+
+"What about the students who were hurt but their petrifaction?"
+
+"Junstin Finch-Fletchley and Colin Crivey will be offered to repeat the previous year."
+
+"I have a question for Mister Entwhistle: why did you regain consciousness earlier?"
+According to the report, you were back in class three weeks after your attack."
+
+"My best friend is also a rich person.
+He ordered a vial and administered it to me somehow."
+
+He did not really lie, and he gave no name, perfectly biasing the truth potion.
+Then, when Vlamdir was called ingested the potion and stood up at the bar, the interesting part started.
+
+"Indeed, I have fought against Lord Voldemort last year.
+He took possession of a student."
+
+"How did you know it was him?"
+
+"He is a Parsletongue."
+
+"Do you understand Parsletongue?"
+
+"Kevin understand it," Vlamdir declared in a monotone voice.
+"It's hot."
+
+All who understood the truth opened their eyes wide, as Vlamdir did not answer a direct question under Veritaserum, while Wizengamot members were more worried about the last sentence.
+
+
