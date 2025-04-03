@@ -923,4 +923,152 @@ He took possession of a student."
 
 All who understood the truth opened their eyes wide, as Vlamdir did not answer a direct question under Veritaserum, while Wizengamot members were more worried about the last sentence.
 
+"Mister Kemenov, it is pretty cool in this room.
+Mediwizard, could you see the witness?
+He is strangely pale."
 
+Mccallum approached the Russian and brused his forehead with his hand, casting a healing spell from the other.
+He barely had enough time to catch Vladmir, who collapsed, throwing up blood.
+
+"Again?" Katya yelled, jumping towards her nephew, without a thought for other people.
+She kneeled at his side and watched the Mediwizard work.
+In the stands, the two journalists snapped away at the scene, while Vlad's friends tried to hold back the terrified Muggles and the Wizengamot members called security.
+
+"It is the red breath," the Mediwizard declared in a broken up voice.
+He cast a spell and grew pale, before droning on in Latin.
+The blood flowing from Vlad's mouth dried up, as he painfully caught his breath.
+
+"Thank you," he whispered.
+
+"I am bringing him to St Mungo immediately," the Mediwizard declared.
+"This child has just fallen victim to an extremely dangerous curse."
+
+"No," Vladmir groaned, sitting up with his aunt's help.
+"I am okay.
+Last time was far worse."
+
+_"Last time?"_ the Mediwizard was astounded.
+"Last time should have killed you!"
+
+The Wizengamot members, as well as the rest of the people present in audience room 7 were silently listening to the conversation.
+Five Aurors were standing in front of the room, ready to intervene if need be, including Alastor Moody.
+
+"I have excellent friends.
+What could have...
+The Veritaserum!"
+
+"What?" Katya asked.
+
+"Last time, I had just drank apple juice."
+
+"And this time it was Veritaserum.
+Apple does not alter the potion, contrary to cranberry juice."
+
+"Indeed...
+If you'll allow me..."
+
+The Mediwizard whispered an incantation, and a thin dark ribbon sprang out form the blood on the droung.
+He took out a Veritaserum vial and pushed the curse fragment inside the clear liquid.
+He barely had time to drop it before it exploded.
+
+**"He knew you would drink Veritaserum at the trial,"** Katya growled.
+
+**"Too bad he's already dead,"** Sergei hissed, showing his fangs, which made Matthew McCallum flinch.
+
+"Who cast this curse?" Lucius then asked.
+"It is a class 5 curse, strictly forbidden.
+It's use is punishable by the Dementor's Kiss."
+
+"Not in Russia," Vladmir enunciated, sitting on the accused seat.
+The chains wiggled, but did not move further.
+
+"The question is to know how Veritaserum could end up in your glass," Severus declared, watching Dumbledore.
+
+"That's furcking why," Kevin suddenly spat out.
+"You..."
+
+"Kevin!" a short woman with eyes as blue as her son's exclaimed.
+
+The young wizard got out of grasp, and slowly walked towards Dumbledore, his anger coldly radiating out of all his porse.
+His magic sparkled around him and made the furniture shake.
+
+"When the curse triggered, you stayed immobile... suprised.
+Because you did not expect that.
+You thought you could question him, didn't you?
+Not having to send him to the Hospital Wing!"
+
+"Kev..."
+
+Vlamdir put a hand on his friend's shoulder as he was dangerously close to the old man.
+
+"Sorry, but it's..."
+
+"... deeply angering you.
+I know, but..."
+
+"... calm and mastery are the critical words.
+Sorry," Kevin repeated.
+
+The two boys' closeness was evident, and it was evident to everyone that the one who quickly freed the young Muggle-Born from his forced immobilization was Vladmir.
+After an iquirery with the Hogwarts House Elves, it was found that Dumbledore had indeed tried to subject Vlamdir to the Veritaserum.
+He suspected him of being the attacks' origin, and wanted to know more.
+The use of the potion without the Ministry's approval was prohibited, and it only furthered his fall.
+
+"Mister Kemenov.
+Although not under Veritaserum, will you still answer our questions?"
+
+"I will, Judge Bones."
+
+The focus was back on Voldemort.
+Vlamdir explained that the previous year, he had helped a student who was possessed by a man named Tom Riddle, a Parsletongue.
+He knew the Dark Arts well, and introduced him self as Lord Voldemort.
+He only silenced the existence of the Horcruxes.
+
+"Did you know about the Philosopher's Stone and Professor Quirell"?"
+
+"Yes Madam.
+I knew the Stone was in the school, and that Professor Quirell was possessed."
+
+"Were you the one who sent the Philosopher's Stone back to Mister Flamel?" Griselda Marchbanks asked with curiosity.
+
+"I was," Vladmir did not even tried to lie.
+"I knew exactly was was happening."
+
+"Why did you not refer to the authorities?" Fudge exclaimed.
+
+"I was eleven years old, Minister, no one would have believed me.
+As for Professor Dumbledore, I did not was to meet with him."
+
+The veiled reminder of the previous year's trial was very helpful.
+After a few more questions, he could go back to sitting, and the Wizengamot retired to deliberate.
+Albus Dumbledore was falling apart.
+Everything had turned against he, and he was realizing that he would lose everything.
+
+"Hogwarts is hereby sentenced to pay 8,000 Galleons in damages to each student attacked by the Basilisk during the school year," Amelia Bones read the sentence an hour later.
+"The creation of a new subject and of the working groups will be monitored by Griselda Marchebanks.
+Mister Dumbledore, as you are already dismissed from your responsibilities s Headmaster, you are sentenced to pay 10,000 Galleons to Hogwarts School in damaged for breach of trust and reckless endangerment of the students put under your care.
+You are also under a one year suspended prison sentence.
+Concerning the presence of You-Know-Who on the school's premises, the Ministry notes the risk but will need to obtain more precise information.
+An Auror team will lead an investigation on his survival.
+In the interval, we believe that the news is not released to preserve calm in the magical world.
+The court is now dismissed!"
+
+Albus Dumbledore did not try to protest and immediately left the room, fleeing the mob of journalists and angry wizards and witches wating for him outside.
+The three Muggle families, lead by and Auror, followed more calmly after Kevin greeted his friend.
+
+The three Kemenovs, who had expected by the Ministry's decision concerning Voldemort, waited for a few minutes for the room to clear out, and although McCallum staying near them was natural, they were surprised to see Alastor Moody walk towards them.
+
+"You're pretty pale, son."
+
+"Curse," Vlamdir sighed, before briefly explaining the problem.
+Katya and Sergei was weary of the Auror, until Vlad reassured them.
+
+"We need to go Mister Kemenov, I will not let you leave without a full screening," the Mediwizard declared as Katya talked with their lawyer.
+She quickly came back and they got their wand back outside the audience room.
+At the end of the corridor, a crowd of journalists were interviewing the Ministry for Magic.
+
+"... cannot be alive," a very pale Cornelius Fudge argued to the journalists.
+"We think one of his followers managed to get their hands on the rare and powerful _Serpens Lingua_ Potion, and possessed through Dark Magic..."
+
+Vladmir shook his head in scron, before letting himself be guided towards St Mungo.
+He did not hear the end of Fudge's statement, but it was clear that it would be in the next day's journal...
