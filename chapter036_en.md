@@ -237,4 +237,142 @@ The Russian stood up to quickly rummage through his trunk and got out the pocket
 It had activated near Mad-Eye Moody on Diagon Alley, and it was now clearly in alert mode.
 It turned and shone in his palm.
 
+"Is it a real one?" Neville asked, frowning.
 
+"Yes."
+
+It was enough for the two Pure-Bloods to become tense.
+Sneakoscopes don't react to nothing.
+
+"Weird..." the Russian whispered for himself, wrapping his fingers on the small magical object.
+Kevin, now used to picking up on his friend's every comment after two years of life with him in Ravenclaw, heard him.
+
+"What's wrong Vlad?" he asked, noticing the Russian's posture and his attentive eyes.
+
+Vlad turned his head to the outside, and looked at the landscape go by.
+The weather was increasingly bad, and the air smelled like...
+
+**"Fear.
+The air stinks of fear..."**, Vladmir murmured, forwning even more.
+"Something approaches..." he added for his friends.
+
+"Vlad?" Hermione whispered, as Kevin imitated Draco and Neville, subconsciently tensing uo.
+They could feel anxiety churn at their stomachs.
+Indeed, something evil was coming.
+
+Their wands left their holsters to reach their hands, although not their official wands...
+Kevin was firmly holding Gilderoy Lockhart's former wand, who did not need it since his body was found in the Thames with thanks form the Irish Court.
+
+Neville slowly moved his wrist to adapt to his father longer and more rigid wand.
+As for Draco, he had apparently got his hand on the Molfoy's famous Light wand.
+The artefact had been handed down from father to son for centuries, his family amused by the name for a line usually asociated to the Dark.
+
+Even Hermione had managed to slip into Knockturn Alley to get a wand without the Trace to practice during the summer.
+
+The light of the compartment slightly flickered and an uncomfortabe cold flowed in as the train was slowly decelerating.
+A few minutes afterwards, the Hogwarts Express stopped with a last grinding of the wheels.
+
+The four membres of the Alliance stood up, worried, and Hermione invoked a powerful flame to get some light.
+They hesitated to go in the corridor to see what was happening, when Draco saw fog appearing and windows freeze.
+
+"Dementors!" he understood, growing pale.
+
+"Are you sure?" Neville grimaced.
+
+"I think we'll discover it soon," Vladmir whispered, pointing to the huge silhouette behind the door.
+All felt a shiver of fear.
+
+The door opened slowly, and the cold felt even more biting as a hooded figure was approaching them.
+All colour drained from Vladmir's face.
+However, he was not the only affected one.
+All the group felt their positive thoughts drain away as the cold froze them to their core.
+
+"Vlad felt his mind grow numb.
+Terrifed yells and childish sobs rang out in his head.
+Sobs he had heard before and that brought him too far into his memories.
+He felt his whole body in fear and his ears hum.
+
+"... mir..."
+
+Vlamdir opened his eyes, which he had not realised that he had closed.
+He didn't feel himself fall either, but he was now on the ground.
+Hermione, kneeling before him, had just taken his hand into her own.
+To his great surprise, while most people became cold near Dementors, Vlad realised that his friend's skin was hot.
+He feebly smiled to reassure her, and Hermione stood up to courageously walk in front of the guardians of Europe's biggest wizarding prison.
+As if immune from their effects, the young licorine pretected her friends from the creature's magic.
+
+"Get out," a sore voice rang out.
+"No one is hiding Sirius Black under their cape."
+
+Professor Lupin had finally woken up and seemed fit, if you looked past the enormous purple under his eyes.
+The Dementor did not seem to hear, its attention focused on Hermione.
+A scrawny hand raised to touche the young girl's cheek with a strange tenderness.
+The new Professor whispered a few words and an impressive ball of light sprang from his wand.
+It forced the creature to leave the compartment and light and heat quickly came back.
+
+"Wow, what was that Professor Lupin?" Kevin asked, curious, after a few seconds of silence.
+
+The man gave him a strage look.
+He seemed to be unsettled by the young Ravenclaw's curiosity but answered him, starting at Kevin with his amber eyes.
+
+"A Dementor," the man said.
+
+"No, I know that," Kevin brushed away with his hand nonchalantly.
+"I was talking about your spell."
+
+"Patronus," Neville, Draco and Vladmir simultaneously answered with a muffled voice.
+
+The man gave looked at the three students warily.
+Vladmir, still on the ground, held his head between his knees to avoid collapsing, Hermione to his side.
+
+"What year are you in?" he asked.
+"And how do you know my name, by Merlin?"
+
+"Has any one got chocolate?" Vlad feebly asked, ignoring the question.
+
+Lupin had a pale smile as he saw the sorry looks from the youngsters, and rummaged through his pockets to get a chocolate bar from  it.
+He started to break it into pieces to distribute it between the students.
+
+"I had wanted to give this chocolate bar to Professor McGonagall, but you need it more than her.
+You didn't answer my question," he continued a few moments later, after the chocolate took effect.
+
+"We are starting our third year, and as for your name..."
+
+"... it is simply..."
+
+"... on your suitcase..." Vladmir completed, standing up, slightly more at ease.
+He winked at Kevin, getting dramatic sighs from his friends.
+
+"Gemini, stop it," Draco asked with a false lassitude, even though he was internally laughing at the perplexed expression of their future Professor.
+"At least waint until we get to Hogwarts for that."
+
+"What?"
+
+"It's not our fault if..."
+
+"...the answer to..."
+
+"... this question was..."
+
+"...so easy!"
+
+"We just make our logical mind works, as the good eagles we are!"
+
+"Oi!
+Let me remind you that Hermione was the one who saw the suitcase!" Draco pointed out.
+
+Vladmir frowned as the saw Lupin's sudden reaction.
+The man had not paid attention to Hermione.
+She was always the most discreet of the group, even though she was in reality the most powerful thanks to her magical creature nature.
+However, when the amber eyes turned towards her, Vlad saw Lupin's pupils shrink in surprise, and he hear him discreetly sniff the air.
+
+Remus Lupin was a magical created, which he had never seen on his father's memories.
+He only had to find out which one...
+
+"How do yo uknow the Dementors and the Patronus charm?" the man asked after a few seconds of silence.
+"It's only in the seventh year curriculum."
+
+"We are Pure-Bloods, Professor," Draco said smugly.
+"We known what Dementors looks like, contrary to Muggle-Borns and Half-Bloods."
+
+Professor Lupin frowned at the evident scorn from young Draco for 'impure' Bloods."
