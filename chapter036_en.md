@@ -159,3 +159,82 @@ The ginger twins' arrival, proudly wearing the Gryffindor emblem on their school
 "We're seeking asylum!" Fred exclaimed, sitting down next to Draco.
 
 "Weasleys, you should both learn some manners!"
+
+"_Heretem_ Malfoy, would you please welcome us in your very close circle, for the duration of our hiding from our older brother?" George asked, making a perfect bow, which surprised Draco.
+Knowing the Weasleys, it was surprising to see them know etiquette this well.
+He always forgot they were a noble family when he looked at its members...
+
+"I might, _Minorem_ Weasley.
+You are welcome."
+
+"_Heretem_, _Minorem_," Kevin noted.
+
+"They are ranks in a noble family," Neville explained as George joined his twin.
+They were starting to be hemmed in, especially since they tried not to step on their future Professor's toes.
+
+"The elder is the heir, more rarely called _Heretem_.
+The second-born boy, who can inherit a secondary title, is called _Seniorem_.
+The others are _Minorem_.
+The last-born is a _Minem_," Hermione declared learnedly with a smile.
+
+"Where did you find that information?" Kevin wondered.
+
+Hermione showed him the book she was reading before following the "Wars and Treasons" game.
+
+"Who's that?" Fred asked, pointing to Lupin.
+
+"A teacher?" his twin guessed.
+
+"Yep.
+Don't worry, Vlad has cast a privacy charm on him.
+You were hiding from Percy?" Neville asked.
+
+"Yeah!
+He hasn't stopped since he learned that he is Head Boy.
+You realize..."
+
+"That he took his badge..."
+
+"With him in Egypt?"
+
+"And you didn't put him in a pyramid?" Hermione asked maliciously.
+
+"We tried, but..."
+
+"... Mom realised and..."
+
+"... Bill got him out before..."
+
+"... he was mummified..."
+
+"... unfortunately!" George concluded with a theatrical sigh.
+
+"And he is running after you to dissuade you from doing pranks this year," Kevin understood.
+
+"Unlucky..."
+
+"... he will be the first..."
+
+"... on our list!"
+
+
+Draco, who was surveilling the outside of the compartment, declared taht the coast was clear after he saw the new Head Boy walk passed.
+With a relieved smile, the Weasley twins stood up.
+
+"Vlad, tomorrow evening at the HQ?" Fred asked seriously on the door step.
+
+Vlamdir, who hadn't uttered a word since they arrived, simply nodded.
+
+"And guys...
+Bring him."
+
+George turned towards the Russian and attentively observed him before nodding.
+
+The small groups, guessing that Vladmir would not answer their questions, simply continued the game.
+This time, Vlamdir intently looked at the game, until some strident noised perturbed them.
+They all looked up at Vladmir's suitcase, from where the sound came.
+The Russian stood up to quickly rummage through his trunk and got out the pocket Sneakoscope Sergei had offered him for his birthday.
+It had activated near Mad-Eye Moody on Diagon Alley, and it was now clearly in alert mode.
+It turned and shone in his palm.
+
+
