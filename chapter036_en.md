@@ -376,3 +376,122 @@ He only had to find out which one...
 "We known what Dementors looks like, contrary to Muggle-Borns and Half-Bloods."
 
 Professor Lupin frowned at the evident scorn from young Draco for 'impure' Bloods."
+He observed him attentively.
+
+The young boy was the spitting image of his father, and Lupin could not mistake him for anybody else.
+He realised that the bushy-haired Gryffindor and the blue-eyed Ravenclaw must be Pure-Bloods as well.
+On the other hand, it was obvious that the Malfoy heir would not get mixed with mere Muggle-Borns.
+
+Continuing his observation, he saw that Neville Longbottom had slighlty lowered his eyes.
+He also looked a lot like his father.
+Franck had been chubby-cheeked as well in his youth.
+Apparently the young Neville did not share Draco Malfoy's ideology, but did not hae enought self-confidence to defend his opinion...
+
+Remus Lupin never noticed that Draco had used 'Muggle-Born', instead of 'Mudblood'.
+What shocked Lupin, however, was the lack of reaction from his late best friend's son.
+Harry Potter had not reacted to Malfoy's unpleasant remarks, and clearly thought himself a Pure-Blood.
+
+Lupin wondered who could have raised him like this.
+It was on this train of thought that he declared to the students that he would go talk to the drive and come back a few minutes after.
+
+"He judged us all," Neville suddenly groaned as the door closed behind their future Professor.
+
+"That's to be expected, you took back the shy Gryffindor role," Hermione noted.
+
+"Yeah, but I think he mistook you both for Pure-Bloods, and the gaze he gave Vlad..."
+
+"Why Pure-Bloods?" Kevin wondered.
+
+"What gaze?" Hermione asked at the same time.
+
+They looked at each other, then...
+
+"Our lack of reaction at Draco's words," the young Gryffindor started.
+"Any Muggle-Born or Half-Blood would have protested agains the discriminatory words."
+
+"And he looked at Vlad with disappointment," Kevin added.
+
+The three other students looked at him with a smile.
+
+"I was a Half-Blood," Vlad explained.
+"But when Katya made a blood adoption, I am a Pure-Blood."
+
+"But blood adoptions keep part of the mother's genes intact, judging from your eyes!" Hermione said.
+
+"How can you be Half-Blood if..."
+
+"In fact, technically, I have three quarters of "pure" blood from both the Potters and the Kemenovs.
+The last quarter is Muggle-Born.
+It's as if my mother was Half-Blood.
+In that case, the blood is considered pure."
+
+"So, if your grandparents are Muggle-Borns, you are a Pure-Blood?"
+
+"Not exactly," Neville sighed.
+"It's a bit more complicated...
+To be considered a Pure-Blood, you need at least a parent from a wizarding line, and a Half-Blood parent.
+If both of your parents are Half-Blood, you'll still be a Half-Blood."
+
+"So if Vlad marries..."
+
+"If Vlad marries a Half-Blood, their children will be 'pure'."
+
+"So Lupin thinks that Vlad is a Half-Blood thinking himself to be a Pure-Blood.
+Isn't that frowned upon?"
+
+"Very.
+But he is not a Half-Blood."
+
+After a few minutes of debate on Blood statutes, they took a break to change.
+They would arrive in Hogwarts less than an hour later...
+Hermione got out so that the four boys would change, then they switched for the girl to get into her school robes.
+As they were starting to talk about matrimonial contracts, the door flung open.
+
+"Vlad!" a young, blonde, frail girl jumped into the Russian's arms, who somehow managed to catch her.
+
+"Luna? what going on?" Kevin aksed as the Ravenclaw girl was sobbing into Vlad's neck, seeking comfort.
+The Russian, stiff, tried to calm her as best as he could.
+
+The young girl enventually let go of Vlad and huddled up between her Housemates, drying her humid eyes.
+Hermione understood the cause of her bahaviour from how pale she was.
+She gave her her piece of chocolate and took her hand until she calmed down, communicating some comfort.
+
+"Thank you," Luna sighed, delicately biting into the sweet.
+Colour grew back into her cheeks, then she put her legs over Vladmir's lap and using Kevin's shoulder as a pillow.
+She fell alseep in seconds, under the third years' amused looks.
+
+"Well, that's..."
+
+"That's Luna," Neville smile softly.
+
+"She must have seen her mother's death," Draco sighed, putting his cape over Luna's legs.
+Strangely, she had come bare feet, her thin legs only covered by her uniform skirt.
+
+"How do you know?"
+
+"It made the Prophet headlines a few years ago.
+I remember, because my mother was also a poitionist, and I was afraid it would happen to her."
+
+"Potions accident?"
+
+"A nasty one at that.
+Half of the Lovegood manor went up in flames.
+It has stayed abandonned ever since," Neville whispered.
+
+A few minutes later, Professor Lupin came back in the compartment and observed the small group once again.
+He seemed surprised when he saw Luna sleeping on her classmates, but did not question it, neither did he question the House pins.
+He sat down in his spot and smiled at them when he noticed they all ate their piece of chocolate.
+
+"We'll arrive in ten minutes.
+Are you alright Harry?" he added after some hesitation.
+
+"It's Vladmir, Professor," he calmly corrected, not surprised of the use of his former name.
+"But I am indeed alright.
+Just a few bad memories coming back."
+
+The man had an uneasy smile.
+
+"Why..."
+
+"Why am i not called Harry Potter any more?
+My aunt adopted me."
