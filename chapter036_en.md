@@ -495,3 +495,487 @@ The man had an uneasy smile.
 
 "Why am i not called Harry Potter any more?
 My aunt adopted me."
+
+"I should have guessed.
+You have quite the slavic accent.
+So you have the Kemenov name..."
+
+"Vlamdir Vassilievitch Kemenov," the Russian nodded.
+"And I did not know my accent was so strong."
+
+"You start to lose it during the year, but it comes back when you go back to Russia," Neville told him.
+
+"I have met Vassili...
+Katya's grandfather was a harsh man, but an excellent politician.
+But I would have thought that you'd be called Vladmir Yakovitch."
+
+"Yakovitch?" Draco noted.
+
+"Yakov is the Russian equivalent to 'James'," Vlad explained.
+"In the English nobility, the second name, the father's or mother's name, is never used.
+It is in Russia.
+Katya chose to totally break away from my former name.
+You have quite the knowledge of Russian society."
+
+"I have travelled a lot," Lupin eluded.
+"If Katya has raised you, I think you know who I am..."
+
+"One of my father's best friends.
+And I really hope you are not in the same class of friends as Black, because they tend to end up six feet under."
+
+Lupin reacted as if Vlamdir had slapped him.
+The young man had just threatened him implicitly, and he was serious about it, according to his cold and scary face.
+
+The rest of the trip was spent in a heavy silence.
+When the train stopped, the Alliance took the time to fetch Luna's stuff from a neighbouring compartment before getting to the castle, squeezing together in one carriage somehow.
+That part of the trip was calm, except when they reached the school's gates.
+Dementors were guarding the entrence, and only Hermione's presence appeased Luna's shivers and prevented Vladmir from fainting.
+
+They split up to get to their respective tables.
+They were the last ones in, and the Great Hall was already full.
+To everyone surprise, the Headmaster's seat was still empty, and four unknown people were siting down and the professors' table.
+Rubeus Hagrid's presence as also suprising.
+Kevin and Vlad looked at each other while sitting down next to their Ravenclaw friends.
+What was the Grounds Kepper doing at the feast?
+
+Every one knew that Albus Dumbledore had been sacked.
+Some even had whispered harsh words towards Vladmir when he had walked to his table.
+The Russian had stayed emotionless and ignored them.
+After the previous year, when he had been suspected of being the Heir of Slytherin- and not untruly so-, he had gotten used to whisperes.
+However, the presence of so many unknown people as professors, was surprising.
+The conversations did not last long, because Professor Prince dryly asked for silence.
+
+The Ravenclaws, expressionless as required by the four Azure rules of the Sorting Ceremony, saw the first years enter, led by Minerva McGonagall.
+So she was not the new Headmistress...
+
+After long minutes, the new students- from Victoria Andrews, HufflePuff, to Cladius Zabini, Slytherin like his older brother- were all sorted.
+
+Then Severus Prince started to talk once more, while Professor McGonagall went to sit down.
+
+"Good evening," the Potions Professor began, "and welcome to our new students.
+Now that you have all been sorted into your Houses, some things must be said before the feast starts.
+This new year sees many changes to the teacing staff, as well as the curiculum.
+I will let our new Headmistress present those changes.
+Please give a warm welcome to Professor Longbottom."
+
+Kevin barely held back his pumpkin juice, as Vlamdir gave Neville a surprised gaze.
+Nevill winked in response as he applauded his severe grandmother who had appeared between the Great Hall doors.
+
+The Longbottom matriach calmly walked between the tables, a light smile on her lips.
+Her usual taxidermied hat was gone, leaving her long white hair in an impeccable braid.
+Her stiff robes were also replaced by deep blue teaching robes, enhanced by discreet slivery runes.
+She was the incarnation of calm authority.
+
+To many people's surprise, the Longbottoms were the first one to clap.
+Augusta Longbottom was a respected and admired woman in Pure-Blood society.
+Even if it was known that she was a Gryffindore, she had always stayed neutral and perfectly impartial in the Wizengamot conflicts.
+Apparently, most of the other students did not know Neville's grandmother, but they all politely clapped their new Headmistress.
+
+Vlamdir smiled.
+The Board of Governors had chosen a woman respected not for any heroic act like Dumbledore was, but for her undeniable equity.
+If they wanted to mend the relationships between all Houses, they could not chose a better person.
+
+Augusta nodded to Minerva McGonagall and stepped in front of the Headmistress seat.
+Gone were the gilt and the throne that Albus Dumbledore loved, the students realised.
+The new Headmistress's seat was the same as any other professor's.
+
+"I thought one had to be a professor to become Headmistress," Kevin whispered, trying hard to keep the ancestral rules of the Sorting Ceremony.
+
+"She was.
+Augusta was a Herbology Professor for ten years.
+She quit to raise her son," Vladmir whispered, not looking away from the new Headmistress.
+
+Augusta patiently waited for silence to come back, especially at the Gryffindor table, then she smiled to the students.
+It was warm, and with restraint at the same time.
+
+"Good evening every one.
+As Professor Prince said, welcome to our new students, and welcome back to our older students.
+I am Professor Augusta Longbottom.
+You are too young to have been my students, but some of your parents use my class benches when I taught Herbology."
+
+Some discreet laughs could be heard, while other students looked at her warily.
+
+"We have to deal with several things tonight.
+We might as well do it now, before the feast distracts you.
+I will start by a most serious announcement.
+Following the escape of a criminal from Azkaban prison, the Minister for Magic deemed necessary to reinforce the school's surveilance.
+
+Any Pure-Blood raised into wizarding traditions could feel the contempt note in her voice when she talked about Cornelius Fudge.
+Slytherins and Ravenclaws became even more careful to Augusta Longbottom's intonations and body language.
+
+"Despite the schools many protections, Dementors are posted at each of the entrances.
+Although the rules already forbid you from leaving the school outside of designated times, we always have one or two foolhardy students who try to go to Hogsmead.
+This year, I strongly advise you against it.
+In normal times, you would be temporarily expelled.
+However, the Dementors will not be abused by disguise or any other ruse, and they do not understand mercy.
+I do not want to have to tell your parents you are dead, rather than simply sent down.
+
+Some whispers could be heard, and the Headmistress stared at a girl at HufflePuff table a few metres away from her.
+
+"Indeed Miss Bluestock, Dementors technically do not kill.
+They feed off your soul.
+Try to deceive a Dementor, and you will become an empty shell.
+A living body without consciousness.
+You will be declared clinically dead."
+
+The young girl, a sixth or seventh year, grew pale while some students, including the Alliance, mentall applauded the witch.
+In a few words, she had said that the Ministry was threatening Hogwarts' autonomy, that she knew all the students, even if she never met them, and that she would not mince her words.
+
+"Now, for the curiculum changes.
+Following several problems raised during my predecessor's trial, many modifications were made, with the approval of the Department of magical education and of the Board of Governors.
+You parents were informed of some subjects' introduction, and of changes to some others."
+
+The silence in the room became even heavier, and Augusta nodded to a tall woman with aristocratic bearing, pale skin, and long dark wavy hair.
+Vladmir could not see the woman's eyes, but he would bet that she was a Black.
+
+"Professor Burbage retired, and Muggle Studies was deeply changed.
+Please welcome Professor Tonks, who will teach the Muggle Civilisation Initiation lessons."
+
+Polite claps rose up as the witch gave them a warm smile and a small hand gesture.
+As she sat down, some students started whispering among themselves.
+
+"What's going on?" Kevin whispered, pointing to the particularly agitated Slytherin table.
+
+"It is Narcissa Black's sister, Andromeda.
+She was disowned for having married a Muggle-Born.
+She is Pure-Blood.
+Slytherins are unsure what behaviour they should adopt," Vlad explained.
+
+And it was sharply played by Augusta Longbtoom.
+Although disowned, her blood was among the most ancient, and Professor Tonks had the education necessary to face a hostile Slytherin class.
+Especially when she was probably a SLytherin herself, as were all Blacks apart from Sirius.
+
+"Next, let me introduce you Professor Selwyn, who will teach a new subject called Wizarding Civilisation Initiation."
+
+"Another Pure-Blood," Kevin whispered, looking at the mature man with a perfectly shaven beard.
+His long, dark-blonde hair was perfectly tied up, as was expected of wizarding aristocracy, and he was expressionless.
+He merely nodded sharply before sitting back down.
+
+Vlamdir was quickly gathering which Selwyn it was.
+This House was quite extensive, with no less than three branches.
+By process of elimination, this should be Marcus Selwyn, of the minor branch.
+It ws renowned for its tutors, and this would be perfect to teach Muggle-Borns.
+Members of this branch were good teachers, despide thir cold appearances, and extremely intelligent.
+
+"The curiculum was approved by both the Board of Governors, and the Department of Magical Education," Augusta Longbottom continued.
+
+For all students used to reading body language, it was obvious that she was tense, and that her next declaration would not be liked.
+
+"Lessons on the magical world will be compulsory for students raised in the Muggle world for their first two years.
+Conversly, children who were raised in the magical world will have lessons on the Muggle world.
+Those lessons may be continued as an option from the third year.
+Furthermode, all students will have lessons this year, depending on their origins."
+
+The Great Hall exploded in anger.
+All students starting to talk among each other, some angry, some curious.
+However, some noticed that the new Headmistress did not appreciate to be interrupted.
+
+"_Sonorus_!
+I would like silence, young people!"
+
+The Headmistress's cold voice stopped the conversations dead in its track.
+Many students lowered their heads to avoid her sharp gaze, while many Professors had mocking smiles.
+
+"_Quietus_.
+Thank you.
+I dare hope it will be the last time you interrupt a Professor this rudely."
+
+Augusta waited for a few moments.
+The contrast between Dumbledore's indulgent grandfather atitude, and Logottom's severity was quite impressive.
+The older ones knew that Dumbeldore would have allowed them to talk until whispers naturally stopped.
+It was not the case with the new Headmistress.
+
+"Those lessons are mandatory.
+The discord in our society, the loss of our traditions, all of this is due to misunderstanding and culture shock.
+Muggle-Borns do not know wizarding culture, because nobody ever explained our heritage to them.
+From now on, this will not be the case.
+Yule, the day of the dead, Saturnalia...
+Who has never heard those words?"
+
+Nearly half the school timidly raised their hand.
+
+"Those are traditional wizarding holidays.
+Those Muggles imitated and named Christmas, Hallowe'en, and many others.
+They all have an influence on our world, and especially our magical powers.
+It is time you learn true Magic, not merely spells, but the essence of our culture."
+
+Silence dollowed the new Headmistress's words, then Kevin slowly stoop up and clapped.
+Vladmir smiled and stoop up himself, as Hermione, Neville, the Weasley twins and Draco also did.
+Susan Bones and Theodore Nott were next, before everyone imitated them.
+
+The Headmistress smiled as the Great Hall clapped with a rare seriousness, and she thanked Kevin with a nod.
+
+"To allow better relationships between Houses, a common project will be required.
+It will be done in groups of eight, and will be on a subject of your choice.
+Tomorrow morning, the lists will be displayed in the Entry Hall, along with your advisor.
+The groups will not be changed bar deeply exceptional situations, and you will have one month to propose the subject.
+Your heads of House will explain it in more detail later.
+
+Some comments were done once again.
+This time, the Headmistress waited for whispers to die down before introducing the next professor.
+Lupin stood up, still as tired, but visibly happy to be on school ground.
+
+"Professor Lupin agreed to dispense Defense Against the Dark Arts lessons.
+He will also teach another subject.
+Youngsters, after 200 years, Duelling is back in the curriculum!"
+
+Many enthousiastic whispers were heard, but thre students learned their lessons and calm quickly came back.
+
+"This new subject will be taught in seventh year, along with another one.
+Mediwizardry lessons are also restored, and will be taught by Madam Pomfrey."
+
+Kevin and Vlamdir held back a laugh when they saw Hermione jump on her chair.
+For all her friends, it was obvious that she would be a powerful Healer, thanks to her licorine nature.
+
+"Finally, Professor Bagshot will now tech History of Magic, while Professor Hagrid will teach Care of Magical Creatures."
+
+Vlamdir sniggered, whispering that he understood why Flourish and Botts had biting books, while claps rose up to welcome the young smiling womand and the hairy giant who had stood up.
+
+"On that note, I will not starve you further.
+Bon appétit!"
+
+"I like Hargid," Kevin groaned as plates appeared, "but is he really qualified to teach?"
+
+Vlamdir looked at the Grounds Keeper who was smiling and blushing while helping himself to the feast.
+
+"We'll see.
+I heard Lisa say that her book bit her.
+If only for that, I'm happy to have chosen Runes and Arithmancy."
+
+"Are you kidding?" Lisa exclamed.
+"This book didn't just bite me, it nearly ripped my finger off!
+Blood librarian forgot to tell me you had to pet its back before holding it!"
+
+Vlad looked at his Housemate's hand and noticed the huge bandage around her index finger.
+Apparently, it was quite the injury.
+He advised her to see the Matron.
+
+"Do you think Bagshot is a parent of Bathilda Bagshot?" Mandy inquired, who had spent all this time observing the young History of Magic Professor.
+
+"Great-granddaugher, if I remember correctly," Kevin answered.
+
+"The day you don't remember something, Kev, the world would already have ended," Kevin said with a laugh.
+"Which book?"
+
+"_Wizarding Lines_."
+
+The rest of the evening was in good humour, although Vladmir thought for many hours how to write an apology letter to his aunt.
+
+<hr>
+
+The next morning meant they would know their timetable, as well as their groups.
+The previous dya, Professor Flitwick had explained how important their exposes were in their end of year exams.
+Ravenclaws were the first to arrive to the enormous notice board, even before going to breakfast.
+
+Laughs, sighs, groans...
+Reactions were varried among the eagles as they discovered the groups.
+Some saw unknown names, especially first and second years.
+Other were impatiently waiting to see the face Gryffindors and Slytherins would do.
+Really, who put Marcus Flint and Oliver Wood in the same group?
+It was suicidal!
+Penelope Clearwater, Head Girl of Ravenclaw, who was in the same group was already pulling her hair out even before meeting them.
+
+"Vlad, we're here!" Kevin suddenly explained.
+
+The Russian stopped looking and joined his friend in fron of a sheet.
+
+> 3rd YEAR, GROUP 3
+>
+> Advisor: S. Prince
+>
+> Gryffindor:
+>
+> Granger, Hermione J.
+>
+> Longbottom, Neville F.
+>
+> Hufflepuff:
+>
+> Abbot, Hannah K.
+>
+> Bones, Susan E.
+>
+> Ravenclaw:
+>
+> Entwhistle, Kevin W.
+>
+> Kemenov, Vlamdir V.
+>
+> Slytherin:
+>
+> Malfoy, Draco L.
+>
+> Nott, Theodore Jr.
+
+We're spoiled, compared to others," Kevin laughed, pointing to tanother group.
+"Look at the Slytherin/Gryffindor pairings, it's hilarious."
+
+Vlad looked at the other groups and sniggered.
+Blaise had Lavander Brown, Ron Weasley and Gregory Goyle, while Daphe would be with Vicent Crabbe, Seamus Finnegan and Padma Patil.
+
+Out of curiosity, he looked up the Weasley twins groups and saw that they were in different groups.
+Fred and George would complain...
+He did not know the other students, but some names were familiar.
+Luna was also advised by Severus, and he smiled when he saw that she would be with Ginny Weasley and Colin Crivey.
+
+"Come one, let's eat!"
+
+Vlamdir, deep in his study of the groups, was dragged away by Kevin and Anthony towards the Great Hall.
+
+"Here, guys!"
+
+"You spent a good fiften minutes at the board.
+Frankly, when I saw my group mates, I didn't want to stay further!"
+
+Some Slytherins were slowly arriving, and they could see the different reactions, from joy to abject horror.
+Breakfast was thus pretty lively.
+Hermione and Neville arrived, happy with their groups, and Draco followed with Theodore and Blaise.
+
+"You lucky bastards," Blaise sighed at Kevin.
+"You're among friends!
+Can I at least have Theo?"
+
+"Don't even think about it, Zabini", Hermione protested.
+"Theo stays with us!
+And to say we could have been with Pansy..."
+
+"Or Crabbe, or Goyle..." Kevin lamented, seeing Blaise mumble.
+The Slytherin grumbled something inaudible before joining his table.
+
+"You've angered him," Theodore sighed.
+"He's gonna be insufferable now!"
+
+"Poor Theodear..."
+
+Theo looked like he bit into a lemon at Lisa's nickname and he looked dagger at her, before joining a gloomy Blaise at the Skytherin table.
+Draco sighed at his friends' mood.
+
+"Thanks Lisou..."
+
+"Welcome Dray!" the young Ravenclaw girl laughed.
+"Professor, are you giving us our timetables?"
+
+"Indeed Miss Turpin.
+Mister Malfoy, you should join your friends, Professor Prince will give you yours soon."
+
+"Yes Professor."
+
+Vlad took his timetable, while Draco left towards his table.
+First lesson: Muggle Civilisation with Slytherins...
+At his side, Kevin smiled deeply.
+
+"Yeah, Wizarding Civilisation, all Houses!"
+
+"You're quite enthousiastic."
+
+"We rarely have lessons with Gryffindors, and it's gonna be pretty easy."
+
+"Speak for yourself.' Micheal mumbled.
+"My dad is a wizard, but my mom is the leading one in the house.
+I only have the theory of wizarding traditions."
+
+Kevin gave him an encouraging smile and took a glass of pumpkin juice.
+
+"Then two hours of History of Magic.
+Afternoon... Runes and group project.
+Outside of History of Magic, it's a good day," Terry declared.
+
+"Wait before judging!
+I think that with a good professor, it's gonna be interesting," Lisa tempered.
+
+"Wednesday, howewer... brilliant," Vlamdir ironically mumbled.
+"History of Magic, Muggle Civilisation, Transfiguration...
+Fortunately, Arithmancy helps!"
+
+"That's quite the time table..." Michael whispered.
+
+"With two core and two options lessions, it's logical."
+
+"You're gonna be late if you stay too long..."
+
+The third years jumped and realised they were the last still at the table.
+The new Ravenclaw Head Girl gave them an amused smile, noting their sudden panic and shook her head.
+
+"You have ten minutes left.
+Muggle Civilization is in the south tower, and Wizarding Civilisation is in the East Wing."
+
+"Thanks Penny!" Lisa yelled, running to the exit with Mandy and Padma.
+The boys followed them slightly slower.
+
+<hr>
+
+A few minutes later, Vlamdir joined the whole of Slutherin, as well as PAdma, Mandy and Terry for their first lesson of Muggle Civilisation.
+They waited in silence and, after a few minutes, the door opened on Professor Tonks.
+
+The woman observed them calmly, before inviting them in, and observed them sit down.
+Gone were the candles, the wooden school desks and the black board.
+The classroom was identical to any Muggle secondary school's, from the electric lamps, to the white board, along with state-of-the-art computer and projector.
+
+<hr>
+
+A few floors away, Kevin observed his friends calmly talk in front of Professor's Selywn's door.
+Apparently, they did not realise that until they were silent, they would not be able to sit down in the classroom.
+
+After a few minutes, Hermione and Kevin looked at each other.
+
+"If you continue talking, we will not go in," Hermione noted, whithout realising that their Wizarding Culture professor had appeared behing them.
+
+"Exactly Miss Granger.
+Five points for Gryffindor.
+I am, however, surprised to see you here, along with Mr. Entwhistle."
+
+"Neither Hermione nor Kevin responded, which made the professor smile with satisfaction.
+
+"Why don't you answer?" Dean Thomas, Gryffindor, wondered.
+
+"Mr. Entwhistle?"
+
+"It was not a question.
+There was thus no reason to respond."
+
+"Five points for Ravenclaw.
+I expect exemplary bahaviour from both of you.
+Lord Malfoy put his reputation on the line for your presentation, and I am pleased to see that he might have been right.
+Come in."
+
+Some students whispered among themselves, observing the two students, surprused by their sibylline words.
+One look from the Professor shut them up.
+
+"Stand next to your chair," Kevin whispered to his Housemates.
+
+All Hufflepuffs and most Gryffindors sat down.
+They each lost 5 points for their House.
+
+"You will wait for my permission to sit down from now on," Marcus Selwyn calmly declared.
+"I will not ask of you the bahaviour I expect of Miss Granger and Mr. Entwhistle, as they are special cases.
+However, I expect respect and manners from each of you!"
+
+Justin Finch-Fletchey raised a hesitant hand.
+
+"Yes, Mister...?"
+
+"Justin... Justin Finch-Fletchley," the Hufflepuff quickly added.
+"Why have Hermione and Kevin got special treatment?"
+
+"You..."
+
+The Professor pointed to a Ravenclaw student.
+
+"Micheal Corner, Professor."
+
+"Mr. Corner, why have you stayed up next to your desk."
+
+"Because Kevin told me, sir," Michael admitted.
+
+"Exactly.
+Both of them have a special treatment because they already know whayt I will teach you.
+Their knowledge of the magical world is what any magical student should have, regarless of origin.
+However, they have something more that I don't imagine you having at the end of your school years.
+Knowledge of Pure-Blood etiquette and traditions that allowed them to be introduced into the highest circles of our society.
+I do not tell you this to demean you.
+To tell you the truth, I dare not imagine how much time they spent studying to catch up with a young heir's education in a mere one and a half years.
+This is why they will be your models of behaviour.
+I will instruct you on wizarding culture, laws and traditions.
+They will intiate you on manners."
+
+That start of the lessons was quite the promise of change.
