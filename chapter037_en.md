@@ -280,4 +280,294 @@ He had also managed to associate each member to each animal on the tapestry, but
 As for the sheep, he had no idea.
 They had not introduced him to the last member, someone called André.
 
-"Kevin, could you go see Ronald Weasley later?"
+"Kevin, could you go see Ronald Weasley later?" the Russian asked as Severus settled down next to them on the sofa where Luna was, getting back Cedric's attention.
+
+"To rearrange his face after insults to both Mione and Hannah?" Kevin asked with a sweet smile.
+
+"No, no need for physical injuries," Vlamdir laughed in response.
+"Just to tell him that Hannah has our support and that it would be best if he left her alone."
+
+"Ronny is acting up again?" Fred signed.
+"Come on, I might ask..."
+
+"... if he really were our brother!"
+
+"He's gonnay pay for it soon!
+Our Canary Creams..."
+
+"... are finally ready!"
+
+"Thank Merlin," Severus added.
+
+"Oi!
+We haven't blown up the lab..."
+
+"... this time!" George added.
+
+"Admittedly, but your birds were starting to drive me mad."
+
+"Madness can be sweet," Luna mumbled.
+
+Under Cedric's astonished gaze, still not used to her shamelesness and Severus's strangely soft demeanor, Luna put her head on the shoulder of the dark Potions Professor, and got back to sleep, ignoring the unconvicing grumblings from the man.
+
+"That deserves a picture, Sev'!"
+
+"André, it's been a while!" Hermione exclaimed.
+
+"Hi Andrade!"
+
+"Kevin, what did I tell you?
+André!" the Sorting Hat scolded him.
+"Well, the young Diggory?
+Is Hufflepuff still good for you?"
+
+Cedric, gobsmacked, could do nothing but stare at the antique magical artefact calmly installed on the Potions Professor's head.
+The sheep made sense now.
+André was probably made of sheep leather...
+
+"To what do we owe your presence?
+Is the Headmistress's office too boring?"
+
+"No!
+Augusta redecorated!
+It's much better, and Fawkes is still here!
+I came here to see Vlad.
+You have to meet with the Headmistress."
+
+"Now?"
+
+"When you've got time.
+Augusta told me she knew you were a busy student."
+
+Cedric wondered what the new Headmistress knew about te Alliance's activities, from the implication.
+
+"By the way, Hermione, is the favour from the Ministry for your classes rumour true?" André asked while Fawkes appeared to move him to poor Cedric's head.
+What was the famous pheonix doing there?
+Wasn't it supposed to stay with his Master, Dumbledore?
+Unless the former Headmaster never was his legitimate owner...
+
+Hermione sighed when Vlad took the small chain on her neck that she had gotten out, and looked at it with a curiosity.
+
+"Protection pendant?" Vladmir asked.
+"I feel its magic."
+
+Hermione had a sorry smile and nodded, putting the piece of jewellry back under her shirt.
+
+"What do you call a protection pendant?" Kevin asked, frowning.
+
+"Do you remember Hermione research for our alert Galleons?
+We talked about locating charms for children."
+
+Kevin nodded, wondering where the Russian was going with that.
+
+"Well, those alert charms are generally found on protection pendants.
+All Russian children get one, and I think it's the same in England.
+Depending on the means and needs of the families, some other spells can be included.
+Curse detection charms, long-range emergency Portkeys..."
+
+Vladmir, to illustrate his words, took a thin band of leather from under his shirt.
+A silver pendant stamped with the Kemenov coat-of-arms was dangling from it, as well as a second one with the Potter coat-of-arms.
+
+"The Potter one was my early chidlhood one.
+I keep it as a memory, but the one protecting it is this one."
+
+Vlamdir pointed to the Kemenov coat-of-arms, including a black snake circling a silver knife.
+He explained that silve was a magical catalyst, and that the stones that adorned the snake eyes were saphires, his birth stone.
+He showed the back of his pendent.
+Fine runes were etched, and he tapped his wand on them.
+
+Several words appeared in the air.
+
+> Name: Tsearevitch Vladmir Vassilievitch Kemenov, Prince Potter, Crown Prince of Kzerna.
+>
+> Blood type: AB-
+>
+> Medical history: Red Breath curse, Possession.
+
+"The Kemenov pendant has detected sources of poison in a 1 metre radius since I got it.
+And since the misfortune with Dumbledore, it also alerts me about thruth serums."
+
+"Can Katya locate you?"
+
+"No.
+Because of our positions in..."
+Vladmir fell silent, starting at Cedric, before shrugging.
+
+"Because of our positions in the Mirage Court, it's too dangerous for anyone to know where I am, even my family."
+
+Cedric nearly choked.
+The Mirage Court?
+The _Magical Mafia_?
+By all the mages in the world, he did not expect to be working with one of the biggest criminal organisations in the world.
+On the other hand, it explained the sudden development of the Weasley twins' trade since the Russian arrive.
+If they were supplied by the Courts, the means were much higher.
+He was going to ask about the implication of the Mirage Court in the Alliance, but he was overtaken.
+
+"Do you have the same ones?" Hermione asked to anyone who would listen, curiosity clearly audible.
+
+Draco and Neville took finely crafted pendants from under their shirts.
+Silver with an emeral for Draco, gold and onyx for Neville.
+
+> Name: Draco Lucius Malfoy, Heir Malfoy, Earl of Mondsery
+>
+> Blood type: O+
+>
+> Medical History: family history of Dragon pox
+
+> Name: Neville Franck Longbottom, Heir Longbottom, Earl of Dollstohm
+>
+> Blood type: A-
+>
+> Medical History: arsenic poisoning, datura poisoning... Development of a total immunity to the following substances and their derivatives:
+
+The list of poisons stretched over several line, which interested all, and scared Cedric.
+Neville gave him a look before explaining.
+
+"Master Line specialized in poisons," Neville argued with a contrite smile.
+"I am immune to most poisons."
+
+"Mom didn't want to give us protection pendants," Fred declared.
+
+"Buy Dad considered it important, so..."
+
+The twins took out bracelets stamped with the Weasley coat-of-arms.
+
+"Strange coming from Molly.
+I would have thought it would be the reverse.
+She has more ambition than Arthur, and quite the overprotective mother," Severus said, leaning forward.
+
+"I love Mom, but..."
+
+"... she considers it outdated.
+Dad was the one who taught us wizarding traditions.
+He is pro-Muggle, but doesn't want to lose our wizarding identity..."
+
+"Did you know that Charles was present at the Saturnalia ball this winter?"
+
+"Yeah, he told everyone but Mom, Ron and Ginny.
+Our younger siblings have taken too much from our mother."
+
+"Well, I have a few things to say to Ron," Vladmir added.
+"Kevin, could you take care of Parkinson and Finch-Fletchley?"
+
+"No problem," Kevin calmly smiled, playing with his wand.
+It was one of the things that Cedric had noticed.
+None of them used the same wand in here as in class.
+To avoid the Trace, they used a secondary weapon.
+
+"Just a big scare?" the Muggle-Born asked.
+
+"Yep.
+With Dark Magic, if possible.
+Slytherins already know who's behind Lloyd's accident, so they'll think twice about hurting Hannah.
+Mione, you should come with him to see Finch-Fletchley."
+
+"I won't intervene for Parkinson.
+No use hightening tensions with Slytherins for her, but I'll be delighted to do that for Justin," Hermione nodded.
+
+"Draco, stay neutral in that.
+You are still the Prince of Slytherins, and this position is still useful to us.
+Cedric, could you show that Hannah and Susan are under your protection?"
+
+"It has already been the case since I was Susan's witness at your official presentation.
+Not enough, it seems.
+I'll see them later tonight," the Hufflepuff declared.
+
+"Let's start with Ron?" Neville asked.
+
+"I'm coming with you," Draco declared with an impatient smile.
+
+"Ooh, a Slytherin in the Gryffindor room?" Fred was extatic.
+
+"Can I come?" Cedric asked.
+"I've always wanted to see the other common rooms."
+
+"Well, I count on your to give me memories," Severus declared, having followed that intently.
+"If there is the slightest problem give me a sign, especially with Minerva.
+She can be bitter when someone hurts her students."
+
+He softly shook Luna, who fluttered her eyes about, before smiling dreamily.
+
+"For the lil' wolf?" she asked.
+
+"Indeed, Wolfbane Potion," Severus said, standing up to go the Salazar Slytherin's laboratories.
+
+Augusta knew those new labs, and Hogwarts had kindly created a door between the office and the Chamber of Secrets when he asked.
+
+"By the way, Miss Granger," the Potions Master said before leaving the library.
+"The idea of paid homework is excellent, especially with the price you and Mr. Entwhistle ask.
+But be careful: while you perfectly imiteted Miss Edgecombe's handwriting, I recognised your style in the homework.
+I have to admit that you have a gift for magic-less contraband, Miss Granger.
+You should practice on something else, like art pieces.
+It's a market that is not developed enough for the demand from the Courts."
+
+On those words, Severus went back to his research, leaving Hermione lost in thought before the whole Alliance went to Gryffindor tower.
+
+After Neville gave the password to a Fat Lady who sang atrociously abdly, the Alliance entered the common room in good humour.
+The lively conversations of the twenty or so students there died down while students from other Houses entered the room, until they stopped completely when Draco passed the portrait, talking with Hermione.
+
+"Really, Hippogriff?
+Were you inspired by the first lesson of Care of Magical Creatures?
+I heard that Goyle was injured by this beast!
+His father filed a complaint to the Board of Governors."
+
+The Slytherin's haughty voice rang out in the suddenly quiet room, and he stared in disgust at the colours in the room.
+Behind him, Credric seemed to like the room, looking over the walls and portraits.
+
+"Oi Mione!
+What is this damn snake doing here?" Ronald Weasley spat out, walking with Dean and Seamus.
+"Vlad, I know you like him, but he's not welcome here!"
+
+"Well, Ronny dear, apparently you gossip about one of your classmates?" Fred declared with a false joy, taking him by the shoulders, as did George.
+
+They also prevented him to approach the young Malfoy, who only responded to Ron with an expressionless look.
+
+"You know we like Vlad and his friends!
+Try not to make any unpleasant comment about them, especially in front of us, Ronny dear!"
+
+The Gryffindors slowly gathered behind the redheads, looking warily at the students from the other Houses.
+
+"We're not here to bother you," kevin declared.
+"We'd just appreciate if Rone and his friends stopped denigrating Hanah Abbot.
+She's really down because of what you're telling about her."
+
+"I do not repeat more than what the rumours say."
+
+"And who's propagating those rumours?" Vlad asked.
+"I thought you were smarter, Ron.
+You're the best strategist in our year, you should know what impact this kind of gossip has."
+
+"I don't know who started those stories," Ron said after a few seconds of silence.
+"I am sorry she feels so bad.
+I think apologies are required?" he added.
+
+"Oh!
+You have developped a good head on your shoulders now?"
+George said mockingly, ruffling his brother's hair.
+
+"I understood the lessons last time," Ron moaned in response.
+"I don't want to be your prank victim for a whole month again.
+But I'm still opposed to a Slytherin's presence here!"
+
+"Sorry Weasley, I wanted to see your common room.
+How can you live with some many garish colours?
+It's giving me a nasty headache!"
+
+He immediately incurred the wrath of the twenty Gryffindors present, and made an amused pout in response.
+It was so easy to mock them!
+
+"Dray..." Hermione sighed.
+
+The young blonde fell silent, pinching his lips, but gave the Gryffindors a mocking look.
+
+"Well, I can understand why Malfoy, Loony, and..."
+
+"How did you call her?" Kevin suddenly growled, even before noting the painful look in his friend's eyes.
+
+"What?"
+
+"How did you call Luna?" the Ravenclaw repeated, wlaking towards Dean.
+
+"It's the name everyone calls her!" the Gryffindor tried to argue.
+
+Ke
