@@ -570,4 +570,195 @@ The young blonde fell silent, pinching his lips, but gave the Gryffindors a mock
 
 "It's the name everyone calls her!" the Gryffindor tried to argue.
 
-Ke
+Kevin brutally caught Dean's robes and got closer to him.
+
+"Call her that one more time," he whispered, "and you'll dicover that I am not as kind as I might be."
+
+"You bas..."
+
+Dean took his wand out, but Kevin took him by the wrist and painfully twisted it, before taking his wand, as Dean moaned in pain.
+
+"Luna is a very good friend, and she is Ron's sister's best friend," Kevin harshly said.
+"As for everyone, she has feelings.
+You think that gossiping and giving degrading nicknames doesn't hurt the targetted people?
+Hannah nearly sobbed because she felt inferior to us because of your stories.
+Luna shakes every time she hears that nickname!
+That's the Gryffindor courage?
+How brave you must be to gossip like that!"
+
+"Mister Entwhistle!
+What are you doing?"
+
+"He attacked be, Professor!" Dean groaned, getting a contemptuous look from Professor McGonagall.
+
+"I expect more strength and honesty from my students, M. Thomas.
+I have been here since your comrades from other Houses arrived here, and i knwo you tried to hex him.
+You have thus lost five points for this, and another five for the lack of respect for your schoolmate.
+
+"As for you five...
+I am not surprised by the presence of Mr. Entwhistle and Kemenov, as they have come numerous times.
+However, Mr. Diggory, and especially Mr. Malfoy, I did not expect you to come here.
+Are you looking to spy on the Quidditch strategies of my team to win the cup?" she joked.
+
+Some discreet laughs rose up in the room as the Gryffindors went back to what they were doing before, appeased by the presence of their Head of House.
+
+"I was curious to discover the Gryffindor common room," Cedric admitted.
+"I was talking with Fred and Geored when they discovered that some students had a tendency to discredit a young Hufflepuff girl.
+I thus followed them."
+
+"And Hannah is part of my reasearch group," Draco said, slightly haughty.
+"Even if she is a Hufflepuff, she deserves better."
+
+"So you have come to settle some scores...
+Why haven't you come to see me?"
+
+"With all due respect, Professor, I do not trust you."
+
+Minerva McGonagall shivered at the cold tone from the young Kemenov, but could only nod at the painful truth.
+His wariness was perfectly understandable, and apparently shared by his aunt, who still had not deigned to respond to her letter, after two whole months...
+
+"And above all, despite his deplorable character, I like Ronald."
+
+The young redhead made a sound between protest and satisfaction, the insult being compensated by the compliment.
+
+"Well, Ronny, Vlad likes your strategy..."
+
+"...talents, it seems!
+Try not..."
+
+"... to make an enemy out of him..."
+
+"... by talking faster than your thoughts."
+
+The evening ended quickly in good humour, except for a handful of people.
+The first one was Pansy.
+
+As the meal ended and the Slytherins went back to their common room, Pansy Parkinso was attacked with her two Housemates and bodyguards.
+She did not have time to react to the three red rays flying towards them, Stupefying them efficiently.
+
+For several long minutes, nothing moved around her, but slowly, the shadows began to move.
+The three Slytherins felt panic rise, as a slight gust rose in the darkness, slowly turning around them like a predator.
+The unknown person did not show themselves, and suddenly, Pansy felt her heart skip a beat.
+She would have screamed if she could as a soft hand pushed away a strand of hair, and someone talked into her ear.
+
+"So, Pansy, looks like you're the one who started the harassement of Hannah Abbot," a cold voice whispered.
+
+Pansy held back a shiver of fear.
+She was at the mercy of someone, probably a student...
+But who?
+
+Kevin, in his victims' backs, looked at the sweat drop along Pansy Parkinson's neck, and softly followed the trace of the drop with his finger.
+
+"Are you afraid, Pansy?" he asked softly.
+"Neither Vincent not Gregory can help you.
+You are at my mercy..."
+
+Kevin observed with a smile the new shiver running in the young Slytherin's body, as he let his hand run down her back onto her lower back.
+Some things were so evident in the Pure-Blood world...
+
+"I could do so many things to you for having dared to hurt Hannah, you're not so ugly, Pansy...
+Or maybe I could call a friend with much more radical methods...
+You Housemast Lloyd knows him.
+But I am much worse..."
+
+The young Parkinson shivered again as a tear ran down her cheek.
+She had never been the victim, always the executioner...
+And what her aggressor implied...
+His hand on her lower back, caressing her hips...
+She would rather face Entwhistle.
+At least she would suffer, but her honour would not.
+
+"Remember this, Pansy," her aggressor continued with a smile she could not see.
+"Hannah and Susan are under protection.
+Don't try anything against them, you'd regret it."
+
+And suddenly, no one was in the corridor.
+
+When the three students got to the Slytherin common room, Drago, talking with Theo and Blaise, saw Pansy distraught and her two bodyguard terrified.
+Kevin had done perfectly well.
+
+"What is making you smile?" Theo asked.
+
+"Nothing.
+Just good news..."
+
+The second person who did not like his evening was Vladmir.
+Everything was good until he entered the Headmistress's office.
+Katya, Lucius and Augusta were there, sitting in the small relaxation space created by the new Hedmistress.
+
+"Vlamdir, please come sit down," Augusta sighed.
+
+"Should I call you Headmistress or Mrs. Longbottom?" Vlamdir asked, stiff.
+
+"Augusta, Vladmir."
+
+"Black?" 
+
+"Yes," Katya sighed.
+
+Vladmir looked at his aunt warily, worried.
+The Kemenov matriarch sighed again and stood up to hug him.
+
+**"I am not angry at you, Kitten.
+I was worried for you, and you were furious for this."**
+
+**"I am sorry aunty.
+I... I told you horrible things..."**
+
+**"Things you did not think, I know,**" Katya whispered.
+**"You told be in your letter.
+And you'll be angry again..."**
+
+**"Black..."**
+
+**"Yes.**
+Sit down."
+
+"What is going on ?" Vladmir asked, sitting down.
+
+"I eventually found the case against Sirius Black," Lucius declared.
+"It had been sealed by Dumbledore, and it took a month until I found it.
+There was no trial, but we're now certain of it."
+
+"No trial?" Vladmir whispered angrily.
+"Not a disaster."
+
+"Vlamdir," Katya sighed.
+"Goblins have traces of all Fidelius Charms placed on a home beloning to an estate they manage.
+It is a secret only known by Triads, to find deserters they look for."
+
+Vladmir knew this quid pro quo between the Goblins and the Mirage Court, stemmed from centuries of alliances between them.
+
+"So?" the Russian mumbled.
+
+"So the Potter estate has been managed by Goblins for centuries, and the Godric's Hollow house was part of it.
+They thus know the Secrets Keeper, as well as the caster.
+Albus Dumbledore placed a Fidelius Charm on your parents' house, and Peter Pettigrow was the Secrest Keeper."
+
+Vlamdir froze.
+He breifly noted that Dumbledore had always known the truth, but it was not what kept his attention.
+The memory of his meeting with Black turned before his eyes.
+He had seen him nearly every night in his dreams, but also during the day thanks to Occlumency.
+And Vlad rememberd the brief moment when he had met the dog's gaze.
+The pain he had seen...
+
+"He's not..."
+
+"He is innocent," Lucius declared softly.
+
+"I..." Vlamdir swallowed hard, increasingly restless.
+The three Triads looked at him slowly growing paler and paler.
+
+"I met Black..." the Ravenclaw eventually admitted.
+
+"When?"
+
+"During the holidays.
+Just before the trial...
+And..."
+
+Katya did not try to press him.
+She knew her nephew, and he was clearly upset by this meeting.
+
+"And I wonded him," Vladmir whispered, mortified.
+"I injured an innocent..."
