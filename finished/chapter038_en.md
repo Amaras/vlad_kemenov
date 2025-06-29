@@ -598,3 +598,352 @@ Vlamdir forrowed his nose at the sickening smell of the potion Severus had put o
 
 Vladmir, used to the Potions Professor's facial expressions, noted the held back anger in his eyes.
 His gaze followed Severus as he left them and asked Lupin the reasons of his anger.
+
+"I am surprised to see him being cordial to you, Vladmir," the man tried to avoid the answering.
+"Severus had a grudge against James, and knowing his temper, I would have thought he would hate you."
+
+"Then you do not know him well.
+I know Professor Prince is not the type to hate someone for nothing."
+
+Lupin sighed and crosed his hands in front of him, his face growing serious at the bad memory.
+
+"It is linked to a bad joke during our school years.
+Do you know Professor S... Prince well?"
+
+Vlmdir smiled as he rose up.
+
+"Have a good night, Professor!"
+
+And the Russian hurried out of the office, leaving the professor surprised, staring at the clock on the wall.
+The hour of detention was over, right that second.
+And that conversation left him with more question than before.
+What did the young Vladmir Kemenov know about Sirius Black?
+How did could he have known Severus Prince well enough to detect his very slight expressions?
+
+Remus Lupin sighed.
+His instinct was telling him that this year would be eventful.
+
+<hr>
+
+The next morning, Vladmir presented his apologies to his friends for his behaviour, which he also presented Professor Tonks.
+
+"Your apology is accepted, but you still will have detention with me tonight Mister Kemenov," Andromeda Tonks declared severely.
+"You bahaviour was unacceptable, especially for an heir of your rank."
+
+Vladmir sighed, silently accepting the remonstrace, before going back to class.
+Thus he was at 7pm that same day in front of a computer screen, starnig at the totally opaque surface, along with Draco.
+
+"What have you done to get here?" Vlamdir eventually asked his friend.
+
+"An animated argument with Parkinson.
+She is having detention with Sev...
+I would have preferred to scrub cauldrons," Draco added, staring anxiously at the strange dark box and its attached pad.
+
+"Come one gentlmen," Professor Tonks laughed.
+"It is not that complicated, and count yourselves lucky!
+You are the first ones to discover the joy of computers!
+Now, take that mouse in your hand!"
+
+Draco and Vlamdir looked at each other desperately, before obeying.
+They managed to turn the computer on and use the keyboard and the mouse, before realizing how sadistic Andromeda Tonks nés Black was.
+
+They had to write lines in a text edition software.
+'I have to learn how to control my bad temper, I am an educated Pure-Blood,' for Vladmir; and 'I must not insult a girl even if she deserves it, I am a Malfoy by Merlin' for Draco.
+Sentences all in biting irony...
+Needless to say that in one hour, they eached filled a single page, their professor slightly laughing at them, busy marking their homework.
+
+<hr>
+
+That story was still the talk of the Alliance when they got to Hogsmeade the next week-end.
+Vlamdir still was gloomy sometimes, but each time his friends reminded him of the lines on the computer, making him smile again.
+
+When they finally arrived at Hogsmeade after a good half-hour walk from the castle, Hermione and Kevin discovered one of the rare magical villages in Great Britain.
+The main street was a busy shopping area, and reminded them of a rural Diagon Alley.
+The main street's cobblestones were slightly muddy, and Neville when a chicken had sprung out from under Hermione's nose, making her jump.
+That good humour made the last vestige of unease they had all felt passing the castle's gates, guarded by two Dementors.
+
+"That's..." Kevin started, looking at the village.
+
+"Picturesque," Hemione smiled.
+"I feel like I'm back in the 18th century!"
+
+"Shall we go shopping?" Cedric asked.
+
+"Didn't you want to go with your friends?" Neville asked, surprised.
+
+"Indeed, hanging out with third and fifth years is bad for your image of Perfect Hufflepuff," Fred laughed.
+
+"I'm avoiding Chang.
+She's quite clingy."
+
+"She's shouting from the rooftops that she's gonna be your next girlfriend," George sniggered.
+
+"Her?
+Please no!" Cedric was horrified.
+
+"Then who?" Neville teased him.
+
+"Well, I have to admit I have a crush on Eleanora Ogden."
+
+"That's ambitious!
+Apparently Lord Ogden closely monitors his daughter's suitors."
+
+"My father is negotiating a marriage contract...
+Zonko first?"
+
+The mocking looks Cedric got at his flagrant avoidance made him sigh.
+He thus was teased all morning as the first visited Zonko, where the twins stocked up, before joining their friend Lee Jordan.
+They then went to a small library, before Cedric left the thrid years when they walked in front of Madam Puddifoot's Tea Shop.
+Kevin was the first to notice the pretty Slythrin redhead that awaited him.
+
+"Elanora Ogden," Draco smiled.
+"Pure-Bloof from an old Scottish line, her family amassed wealth thanks to the alcohol trade."
+
+"Wait...
+ogden, like Ogden's Firewhisky?" Kevin asked.
+
+"Exactly.
+She's the youngest.
+Her older brother is a billionnaire, and her dot will be... exceptional.
+That's why her father pays close attention to her suiters!"
+
+After getting to the Living Magic, a shop specialized in magical plants and animal where Neville, Hermione, and Vladmir found gifts for plants and treats for their respective animals, they eventually settled down at a table in the Three Broomsticks.
+
+The pub, full of students, was warm and welcoming, and they did not wait much for someone to take their order.
+After the waiter, a warm lady, went to fetch their five butterbeers, they started an Explosing Snap game.
+Vlamdir was skillfully leading the game, when he saw a group of four people stop at the Three Broomsticks' entrance.
+
+"Oh fuck," he swore.
+
+"Vlad!"
+
+It was so rare to hearm him swear that they turned to the source of his surprise.
+Lucius Malfoy was standing in the entrance, Katya at her side.
+Vlad smiled when he saw how close they were.
+They were standing in such a way that their relationship was flagrant even without any inappropriate gesture, and could not help but be happy for her.
+Augusta was having a conversation with his aunt, while the Lord talked with his best friend, Severus Prince;
+
+Vlamdir and Neville were the only ones to note the three bodyguards behind them, hiding among the students.
+After all, four Triads were in the same place, and that was quite rare...
+
+The four adults approached them, and Katya embraced her nephew, kissing himon his forehead.
+
+**"How are you Kitten?"**
+
+**"Good."**
+
+**"Vlamdir Vassilievitch,"** Katya sighed, sitting down next to him, thanking Kevin who had moved to leave her some space.
+Lucius sat down next to her and smiled at his son, while Augusta sat down between her grandson and Kevin.
+
+**"I feel awful, but you already know that..."**
+
+**"I had echoes of your behaviour last week, indeed."**
+
+**"I apologized and..."**
+
+**"You were already punished for that...
+I know as well.
+I am proud that you took the initative to apologize to your friends and professors."**
+
+Vladmir suddenly relaxed at his aunt's reassuring words, not aware that he was this tense before.
+He had unconsciously been afraid to disappoint her, he was relieved to know it was not the case.
+
+"Any news from Black?" Draco asked, sipping on his Butterbeer while Madam Rosmeter, the owner, walked to their table herself to bring tea, two Whiskeys, and the Vodka the adults had ordered.
+
+"Thank you dear," Augusta said with a smile, paying her, before sipping on her tea.
+
+"Indeed.
+Black is around Hogsmeade.
+Keller's men are on his tracks.
+One of Sergei's vampires is helping them..." Severus calmly explained after Madam Rosmerta walked away.
+
+Keller was the new head of mercenaries of the _Underground_, who had lived through the fall of the first British Mirage Court.
+Vlamdir knew the man's name and reputation, quite the legend in the magical mafia.
+One of the most dangerous European mercenaries, specialized in tracnking.
+
+"Why did you come?"
+
+"I wanted to see my favourite nephew," Katya smiled, passing her hand through Vladmir's long hair.
+He grumbled as he correctly reattached his cardigan, as Lucius and Augusta discreetly laughed.
+
+"I also wanted to invite you four to the day of the dead.
+Let me reassure you Neville, we will bring lighter alcohol for you," Katya laughed as the Gryffindor paled as he remembered the experience.
+
+"To tell you the truth, we hope that Black and Lupin could join us," Lucius explained.
+
+"If he is alive..." Vlamdir sighed.
+
+"We hope so...
+According the the trackers who met him, you badly injured him," Katya sighed.
+
+Vlamdir lowered his eyes, uneasy at the memory of the amount of blood he had spilled in the small park in Surrey when they met.
+Sighing again, Katya changed subjects and brought back good humour around the tabled.
+They spent two hours together, before leaving their own way.
+
+<hr>
+
+When the small friends group came back from Hogsmeade late in the afternnon, they were exhausted.
+They thus went back to their common room to get warm and change clothes.
+Less than a quarter of an hour later, Professor Flitwick came to them and declared that they all had to immediately go to the Great Hall.
+
+Somewhat disorientated, they joined the Hufflepuffs in the way, before realizing that the whole school was gathered in the Great Hall.
+
+"Mister Entwhisle, Mister Kemenov, please follow me," Professor Flitwick told them discreetly, after he pulled them to the back of their House's line.
+
+Surprised, both Ravenclaws left their ranks, their Housemates looking at them curiously, before they were escorted to a small room.
+They met back with Hermione, Draco and Neville.
+
+"What's happening?" Draco asked, frowning.
+
+"The Fat Lady, the painting guarding our common room, was assaulted," Neville explained.
+"It was Sirius Black."
+
+"Every one is gather while they search the whole castle," Hermione contonued.
+"According to McGonagall, they are making the Dementers enter the cuilding, and to protect us, we are confined to the Great Hall.
+
+The door to the small room briskly opened, making all of them jump.
+
+"Father?" Draco wondered aloud.
+"Why are you here?"
+
+Indeed, Lucius Malfoy had just come into the room, his cape and his ornament cane were gone.
+He seemed much more imposing in his combat robes, far from his usual sofisticated outfit.
+He also seemed more anxious.
+
+"Augusta is taking care of the students.
+Hermione, Vladmir, you come with me.
+Neville, Draco, Kevin, you are here because we know that if they had disappeared without telling you, you'd have gone to look for them."
+
+"You're looking for Black," Kevin understood.
+
+"Indeed.
+He is on the school premises.
+Vlad, do you have the vial of his blood?" a low voice asked.
+
+Sergei, who had just appeared in front of them, was carefully observing the young Kemenov.
+Vlamdir had admitted having Sirius's blood during the talk in the Three Broomsticks, and that was all the vampired needed to spot him.
+If the Animagus was within a five kilometres radius, Sergei would smell him.
+
+"Why must Hermione come?" Valdmir worried for his friend.
+She was not trained for combat, despite her talent for magic.
+
+"I don't know how Black will be when we find him.
+Her blood might be necessary to save him."
+
+"How did he managed to pass through the Dementors?" Hermione wondered.
+
+"Probably thanks to his Animagus form," the vampire sighed.
+"And that is why you must not leave my side.
+I don't know the Dementors will react to you, Hermione.
+According to Draco, the Hogwarts Express one reacted positively.
+I doubt they would assault you, but you could lure them in and that would be bad for us..."
+
+They thus followed the vampire through the castle, accomanied by Lucius and Katya.
+They had Augusta search the castle with the other professors to confuse others, and give them free reign to catch Sirius Black.
+Sergei, after he took some time to smell the blood vial, quickly found his track.
+
+They started from the Fat Lady portrait, and had walked through the corridors, crossed the park, until they reached the Forbidden Forrest.
+Hermione and Vlamdir stared at each other anxiously.
+The last time they went in the forrest, they had met Voldemort.
+Those were not good memories...
+
+Like during their last stay, the place was gloomy.
+The air was cold and damp.
+Fortunately, they did not attract any Dementors, maybe thanks to the two Patronuses.
+A cheetah was purring next to Lucius, while a two-headed eagle had landed on Katya's shoulder, making Hermione curious.
+
+"It's the Russian Tsars' symbol.
+All Kemenovs have a two-headed eagle as their Patronus," Vladmir explained, fighting his anxiety.
+What if Black had died from his injuries?
+It was cold, and with the Demetors, why knew in what condition they would find him?
+Why had that stupid Black rushed into the dragon's den?"
+
+**"Vlamdir, calm down."**
+
+**"Sorry..."** the Russian mumbled once more.
+
+**"And stop saying your sorry,"** Katya sighed while stepping over a tree trunk.
+
+"He's not far...
+His smell is powerful," Sergei declared suddenly.
+
+"It's getting colder, isn't it?" Hermione asked softly.
+
+"Dementors?" Vald turned pale.
+
+"Probably.
+Sergei, go!" Katya ordered, launching her Patronus to follow Sergei, who had just disappeared using his superhuman velocity.
+
+They quickly followed the tails of light left by their Patronuses.
+
+After a few minutes running between the trees and stumbling over their roots, they eventually reached an oxbow lake.
+A human form was on the ground, in the middle of a rock beach, supported by the vampire.
+The two Patronuses were protecting Sergei and Sirius Black, surrunded by a dozen Dementors.
+
+"He is unconscious," the vampired yelled out, as Katya and Lucius were casting their Patronus again to move the Azkaban guardians away.
+
+Hermione, under a sudden impetus, screamed at them to go back to their initial post, and a wave of magic sprang from them.
+It brushed the Dementors, and they shivered, before slowly disappearing, obeying her order.
+
+"I...
+I think you sent them back to the castle gates," Lucius noted with surprise.
+
+"Maybe even Azkaban," Katya added, thoughtful, while looking at the lake.
+
+"But it's...
+But...
+it's... it's...
+it's not possible!"
+Hermione stuttered, before remembering the Dementor in the train.
+Shocked, she stumbled and Katya needed to support her.
+Katya reassured her softly, explaining that she had a gift over any and all magical creatures...
+
+Meanwhile, Vladmir had kneeled down next to his godfather and removed the ragged shirt, discovering the injuries.
+The skeletal body and marked by years of starvation was gashed by large infected wounds.
+
+"What spell did you use?" Sergei asked, brushing the fugitive's forehead.
+"He's bruning."
+
+"A cutting spell infused with Dark Magic, so that he could not heal himself," Vladmir whispered, casting an ineffective spell.
+**"Merlin, what have I done?"**
+
+"Sepsis and anemia, as well as chronic fatigue and starvation," Lucius diagnosed thanks to a quick spell.
+"He need a Mediwizard and quick healing.
+Hermione, do you know how to do it?"
+
+"I don't," the young girl whispered, sitting down next to Vladmir, still supported by Katya.
+
+"He needs to drink some of your blood," Lucius exaplained calmly.
+
+"But he's unconscious!"
+
+_"Enervatum,"_ Katya whispered, pointing her wand on the man.
+
+Vladmir saw the hollowed face of his godfather.
+His eyes fluttered around before slowly opening.
+Sirius Black's irises, of a deep grey, were hazy because of the fever and turned to Sergei's bloodshot eyes with great difficulty.
+
+"What..."
+
+In a feeble attempt to defend himself, Black struggled, but Sergei overpowered him as softly as possible.
+
+"Calm down Black, you are safe now...
+Hermione!"
+
+The young licorine let Lucius cut her wrist witha  spell and put it over the man's lips.
+She opened her eyes wide as she saw her blood take a golden tint as it flowed over Black's chin.
+
+"Drink," Sergei growled, his red eyes burning with hunger at the enchanting smell of the young girl's blood overwhelmed his senses.
+He fought his instincts and softly massaged the fugitive's throat to help him swallow.
+
+Sirius Black, mouth full of a thick liquid, forced himself to swallow, and he felt a soft warmth in his body.
+A few seconds later, he felt his consciousness drift again, but he heard three small words.
+Three words coming from a voice he knew...
+
+"I am sorry."
+
+He barely had time to look at the two green eyes.
+A shade of green he had seen recently.
+But they did not have hate in them any more...
+
+"Harry..."
