@@ -776,5 +776,282 @@ The _Red Dawn_ journalist choked on his drink as Ollivander frowned.
 "I do not know this woman.
 I thought Gregorovitch was the one supplying the Slavic countries."
 
-"Gregorovitch died before I could get ot his shop."
-23297
+"Gregorovitch died before I could get to his shop."
+
+"Obolovna is one of the few wandmakers to create custom-made wands.
+She lives in the Russian Far-East, near the Sea of Okhostk," Odkadteski filled in.
+"She also supplies of Japanese wizards."
+
+"Hmmm," Ollivander replied.
+"It seem of a high quality, although made from surprising parts…
+Twenty six centimetres, Japanese larch, with a hyppogriff feather core and… also vampire blood?"
+
+"Great-Uncle on the Kemenov side," Vladmir declared neutrally.
+
+"The Saint-Petersburg Knyaz?" the _Red Dawn_ journalist asked with great interest.
+
+"The Saint-Petersburg Knyaz is an excellent friend, but he did not supply the blood," Vlamdir answered.
+
+"As I unfortunately cannot touch your wand, dear, could you cast a small _Lumosç for me?"
+
+Vlamdir sighed and cast the spell, before returning to his seat.
+
+"Mister Krum?"
+
+The Bulgarian also followed the ceremonial.
+Ollivander identified the maker this time, the late Gregorovitch, and determined that it was made of Horbeam, with a core of a dragon's heart nerve.
+As small chirping birds sprang from Viktor's wand, he finally called Aleksei, who presented his wand without holding it out, as Vladmir had done previously.
+
+"One of… AAARRGH!"
+
+**"Idiot!"** Aleksei roared, getting his wand back from the hands of the man, who had taken it before Aleksei could prevent it.
+**"Doesn't he listen to warnings?"**
+
+Around him, journalists had jumped out of their seats, scratching on their notepads while the photographers were snapping away at Ollivander.
+The members of the jury also immediately jumped out, but Aleksei was already kneeling beside the man, who was screaming in pain, his hands half-burned.
+
+**"Aleksei…"** Vladmir yelled.
+
+**"That will teach him a lesson!"** the Russian spat out, looking at the man howling on the ground, before raising his wand, cutting his hand, and spraying the wandmaker with blood.
+**"Cancel, by the blood of Aleksei Lyvonovitch Vasefine!"**
+
+The old wizard immediately calmed down, and the burnt marks nearly immediately disappeared.
+
+"When we warned you about not touching the wand of a Russian wizard without his consent, there was a good reason for it," Aleksei said, standing up to look at the journalists.
+
+"You should had told Mister Ollivander," the French witch declared.
+
+"Madame, he knew I am Russian, and Vlamdir had gone before me.
+I did not think he would be so stupid as to not make the connection."
+
+And Aleksei returned to seat after casting a blinding _Lumos_ to prove that his wand was perfectly usable.
+Only the Slavic journalists saw him whince as he massaged his painful leg and drink a vial of potion.
+
+"Now," Ludo Bagman sighed as Garrick Ollivander was brought to the Hospital Wing.
+"Let's get to the questions from the journalists, then we will have a photoshoot.
+Ladies first."
+
+"Why are you six champions competing instead of the scheduled three?" the _Magie Libre_ witch asked.
+
+"After the champions were named, a fourth name sprang out of the Goblet of Fire: Vladmir Kemenov."
+
+"Because I am under a magical contract, I cannot withdraw.
+To balance out the situation, Lord Rowle asked Durmstrang, Rochefroide and Beauxbâtons to choose a second champion."
+
+"Are they also under a crontract?" Amiphilius Lovegood asked.
+
+"Indeed, we are under the same constraints as the original champions," Aleksei answered.
+"The English Ministry quickly drafted contracts based on the one for the Goblet of Fire."
+
+"Who are the true champions?" Rita Skeeter asked avidly.
+
+"There are no true of false champions," Viktor Krum cuttingly declared, after looking at the other students in the room.
+
+"Miss Delacour, how does it feel to be the only woman to compete?" David de Raspières asked.
+
+"I am both flattered and honoured to be the only woman, but I am disappointed at the same time.
+
+"Mister Kemenov, is it true that you have led a clan war this very night against the Dlavonines?" Odkadteski ask out of curiosity, although the answer was obvious from the bandages and the potions the two clan heirs had been discreetly drinking.
+They were courageous to face a horde of journalists the morning after an attack.
+They had probably not slept, as well.
+
+The fearful jump from Igor Karkaroff at the mention of the Dlavonince was noted by everyone, and Vladmir filed this detail in his mind.
+
+"This question is irrelevant and I will not answer it," the Russian sniffed, before acepting the silent appologetic nod ftom the journalist.
+
+"Have you got a fiancée?
+After all, between all your titles and your status as the Boy-Who-Lived…"
+
+The _Daily Prophet_ journalist could not finish her question.
+The gaze Vladmir gave her could have been enough to freeze the Black Lake.
+
+"Again, irrelevant question, and inapprorpiate at that.
+My private life is not your business, and if I learn that this wonderfull quill," he pointed to the Quick-Quotes Quill, "changed any of my words, you will see what my titles mean on a legal and political level."
+
+The other journalists gave the magical artifact disgusted looks.
+
+"Mister Krum, after your performance at the Quidditch World Cup, do you feel confidant for the Tri-Wizard Tournament?"
+
+"I do.
+I do not apprehend them the same way.
+Personally, the Tri-Wizard Tournamentis a matter of honour for the school.
+Quidditch is something I do for pleasure and challenge."
+
+"Did you know each other before meeting for the tournament?"
+
+"Some of us did," Aleksei replied.
+"Vladmir and myself are quasi-neighbours, and we grew up together.
+He also knows Cedric, as they are from the same school.
+And he had met Viktor during the Flightracing championships and during the World Cup opening."
+
+"You participate to Flightracing events?" Lumino Tisescui wondered.
+"Wait… are you _that_ Kemenov?
+The madman who proceded to exchange their broom during the World Cup?"
+
+"I am not sure madman is appropriate," Vladmir nuance, "but I am indeed that Kemenov.
+
+"What is Flightracing?" Sabine Courtin, from _Magie Libre_ asked.
+
+"It is a broom race in a natural environment," Fleur Delacour explained.
+"It is a very niche sport in France, but I attended this year's Charity Race in Siberia…
+It was really breathtaking!"
+
+"Mister Krum is a famous Quidditch champion, Mister Kemenov is a rising star in Flightracing, and I think Mister Diggory is the Captain of Hufflepuff's Quiddtich team.
+Miss Delacour, Messers Bousquet and Vasefine, do you have any sporting skills?"
+
+"I am the junior French Duelling champion," Matthieu said with a proud smile.
+
+"And he is excellent at it," Fleur Delacour confirmed.
+"I am a lead dancer of the Paris aquatic ballet."
+
+Vlamdir raised a surprised eyebrow.
+Aquatic ballet was a true artform, the dancers were moving in a huge room full of water.
+It was something full of grace, demanding extreme precision to mange to create precise movement in a totally different environment.
+The feeling of gravity nearly disappeared, but the density of water made any movement difficult.
+Those ballets were magnificient.
+It was like seeing birds fly, but in water.
+
+"I though Veelas were incompatible with water?"
+
+"We are not, you are making an amalgam with our difficulties with sirens.
+The fact that we have some rancour against this water people does not make us aquaphobes.
+
+"What about you, Mister Aleksei?"
+
+"I hold the Durmstrand running record… to flee the professors," the Russian joked, making every one laugh.
+
+"He is quite humble, because he does have a reputation at school to be really quick.
+One day, one of the Quiddtich guys wanted to find his peak speed.
+They started from the same point… and Aleksei nearly reached 100 kph.
+He had been nicknamed the Golden Snitch ever since.
+Some are still looking for the cause of his… magical speed."
+
+Aleksei blushed at the journalists' laughs.
+
+"So you all have physical abilities, what about your magical talents?" Tisescui continued.
+
+"We are in this tournament to show them", Matthieu laughed.
+
+"Do you think you will get along in each pair?
+The contrast between Dark and Light magic is present in each of your teams, will it not generate friction?"
+
+"It won't," Cedric declared, to every one's surprise.
+"Because Magic itself is not black, what matters is the intention.
+I have spent enough time with Vladmir to understand that.
+He is a Dark wizard, uses blood magic, and even sacrifices, but that does not make him evil."
+
+"Durmstrand teaches both types of magic.
+I would be a hypocrite if I told Aleksei off for using Dark Magicn when I cast those spells in class."
+
+"I am a Veela.
+Some magical societies consider me less than an animal.
+Why would I reject a man because of his blood and his preferrential magic?
+Indeed, Matthieu had vampire blood in his veins, indeed he uses Dark Magic, but I am not against it."
+
+"As for working together," Viktor continued, "I think we all know our teammate well enough to know what we can and can't do."
+
+This proof of tolerence closed the question and answer section, and after a few photos, they were free to go back to class.
+
+As he chose to go the Alliance HQ to wait for the others before eating, he was surprised to see Sergei and Katya.
+
+**"Weren't you supposed to go to the Hospital Wing to get treated?"** Katya reproached him.
+
+Vladmir swore, having completely forgotten about his hand.
+The curse had gotten up to his shoulder, and he was brought to the Hospital Wing, where Aleksei was examined by Madam Pomfrey.
+
+**"You nearly forgot?"** Aleksei sniggered, in his underwear, as the Matron examined his leg.
+
+**"Shut up,"** Vladmir groaned, as the Kemenov madiwitch appeared with Augusta and Rasputin, followed by the Vasefina Mediwizard.
+
+**"The curse has spread a lot since this morning,"** the immortal Dark Mage sighed, examining the mummified arm.
+**"I have finished the potion, you will drink it.
+Let me warn you, you will sleep very deeply, it will take time to act throughout your body…"**
+
+Vladmit agreed and gulped down the deep blue potion.
+He imediately feel into a coma.
+
+He did not see Pomona Pomfrey and his Mediwitch examine him, before they finished healing his throat and the numerous superficial injuries that resulted from the clan war.
+Nor did he see Katya sant up after kissing his forehead and surrender to the Aurors, to account for the murder of the Russian wizard.
+
+He did not see Sergei watch over him for the two days of his coma, staying at his bedside, immobile.
+Nor did he see his friends visiting one after the other to check in with him.
+
+He only woke up on the third day, face to face with Sergei, half-asleep on a chair next to him.
+
+**"What…"**
+
+He whinced at the pain in his throat and tried to put a hand on it, before starting to panic when he realized that he could not move.
+
+**"Shush… Kitten, calm down.**
+Madam Pomfrey, he is awake!
+
+The Matron arrived immediately and reassured Vlamdir.
+He could not move because he was still metabolizing the potions in his body.
+It would be a few hours before he could move freely.
+
+"My… throat…" Vladmir croaked.
+
+"Mister Kemenov… you nearly got your throat slit, don't wonrder why it hearts after your neck was healed!
+I am surprised you managed that press conference," she added dissapprovingly.
+"Now, please rest.
+Mister Pokhastovine, I count on you to keep him calm."
+
+"Of course, Madam," the Vmapire smiled.
+
+**"Ser… gei…"**
+
+**"Yes, Kitten?"**
+
+**"Ka… tya?"**
+
+**"She managed to prove clan Kemenov's legitimacy for the assassination of the Dlavonine emissary in front of the Russian Justice Court, thanks to the ancient clan laws.
+Thanks to the international treaties, she will soon be free from prison.
+Lucius can't do much, since he is Minister for Magic.
+He's grumbling that he should have waited for a year before overthrowing the Ministry, he could have bribed Fudge."**
+
+**"Tsar?"** Vladmir asked hesitantly.
+He had not forgotten the name Slytherin had said, the one of the first dynasty of Tsars, which had reigned for nearly seven centuries on what would becore a part of Russia.
+
+**"No, Kiten.
+I was indeed part of the royal Riurikid dynasty, but I was a mere prince, way before the first tsars appeared."**
+
+**"You and H… Helga?"**
+
+**"You didn't forget, did you?"** the vampire sighed.
+
+Vladmir gave him a pleading look, and Segei sighed again before telling his story.
+
+**"I was transformed nearly a thousand years ago.
+To tall you the truth, I don't remember when exactly, it's starting to be too far…
+I met Helga Hufflepuff when I was stil lhuman.
+She was travelling Europe to learn new forms of magic wuth the Other founders, and they had ended up in my country.
+It was way before the foundation of the school, when they were still apprentices.
+They arrived in the city of Skidlav…
+It was not in Russia yet, only a Slavic kingdom named Novgorod.
+I was the cousin of the king of this small province, and as such, I was habilitated to welcom hihg-ranking guests.
+Helga and her friends were supposed to stay only a few days, but days became weeks, then months…
+We learned to know each other, and love each other…
+We were going to marry, when I was forcefully transofrmed by Dimitri Pokhastovine.
+I only could get free from his grasp after two centuries, and she had long been dead by the."**
+
+Vladmir stayed silent at the news.
+It explained Helga's tears and the rencour from the other Founders.
+THey had thought for a millenium that Helga Hufflepuff had been nearly abandonned at the altar!
+
+**"I had a son,"** Sergei eventually whispered.
+
+**"Come… again?"** Vladmir said.
+
+**"I had a son…
+I have descendants…
+This other tepestry in the Crypt…"**
+
+**"They… still… Bri… tain?"**
+
+Sergei nodded.
+
+**"My granddaughter is a formidable witch, and I am not even mentionning her grandson,"** the vampire smiled softly.
+**However, I will have to ask Grigori for help with her son and his wife."**
+
+Vladmir burst out laughing when he realized who his descendants were.
+Life was full of irony.
