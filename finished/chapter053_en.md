@@ -474,5 +474,214 @@ He took out a number, 2.
 
 "A Welsh Green, good," the former Beater smiled before turning towards Viktor and Aleksei.
 
-The Bulgarian took out a 
-24568
+The Bulgarian took out a dragon that was furious to be held by one of its delicate wings, and he winced when the small Chinese Fireball bit down on his thumb.
+Aleksei took the small beast away quickly before Viktor threw it across the room and showed the digit 3 written on the paper he had taken out.
+
+"Sorry, he was not supposed to be able to bite!" Bagman was horried, quickly healing the international Seeker.
+"But you have a Chinese Fireball.
+Mister Diggory?"
+
+Cedric smiled and pused the bag towards Vlad.
+He raised his head to the ceiling and put his hand in to take the last dragon in his palm.
+The reptile hissed and nestled in his hand, a tiny snore ringing our when Vlad showed it to the others.
+
+"A Swedish Short-Snout!
+Perfect!
+You are logically number ones."
+
+Vlad softly moved the beast, happy to have read a lot on dragons to help Draco with his surprise gift, while Cedric took out the announced number out of the bag.
+
+"Good…
+Messrs Diggory and Kemenov, door number 1!!
+Miss Delacourt and Mister Bousquet, door number 2!
+Messrs Krum and Vesafine, door number 3!
+As you have understood it, your opponent will be a dragon.
+When you hear a whistle, you can enter the arena.
+Well, here I go!
+Follow the signs to find your door!"
+
+He pointed to a small tunnel, and the pairs slowly walked towards it.
+Quickly, a first fork led Durmstrang to the right, then after a few dozen metres, Cedric and Vladmir foudn themselves below stairs and a small trapdoor.
+They could hear roars and the screams of students, as well as the words of the commentator.
+
+"Why do I have such a bad feeling?" Vlad mumbled.
+
+"Vlad, we have a few minutes before it starts," Cedric whispered.
+"Do we stick to the initial plan?"
+
+"Yeah…
+But note that Bagman said nothing about not distracting the opponents…"
+
+"You mean the others?" the Hufflepuff asked quitely.
+
+"We stick to the initial plan, I'm distracting the opponents, you go for the egg…
+__Flăcări proteja_."
+
+
+Cedric cast the same spell on himself, a Romanian spell they had found in one of the books they had read for the task.
+This spell had been created by peasants to protect families and homes, Romania had been one of the countries where there was the largest number of dragons for centuries.
+
+"… best Seekers in our generation!
+Finally, the team of the host school is composed of Cedric Diggory, best Hufflepuff Seeker in generations as well as team captain.
+His partner is Vlamdir Vassilievitch Kemenov, rising star of International Flightracing!
+Are you ready to see them fight the dragons?"
+
+The screams of the crowd made them take out their wands at the same time.
+The whistle followed closely, and the trapdoor opened.
+
+A glance out made the two Hogwarts wizards swear.
+They had gotten the door in the middle of the arena…
+Between the three dragons!
+
+"_Accio Stea căzătoare,_" Vlad whispered.
+
+"_Accio Comet 260,_" Cedric murmured.
+They had spent part of the night calling object from further and further away.to make sure they would be able to summon their brooms despite the distance.
+
+"But where are tout Hogwarts champions?" the commentators asked, as mocking whistles rose up from the other schools.
+
+"Pros: were are the closest ones and the others are distracting them.
+Cons…"
+
+"We are in the middle of the tails," Cedric mumbled, seeing the murderous appendages of the dragons pass right above their heads…
+
+Then they heard a distinctive sound.
+A sound that every Quidditch player or Flightracer knew exactly.
+The sound of a flying broom.
+
+The commentator yelled something out, but neither Cedric nor Vlad took it into account.
+It was no use listening to them.
+They had figured out a strategy, and they would stick to it.
+Both were used to challenges, adrenaline and the dangers of the matches.
+
+At the same time, both students jumped from the trapdoor and landed on their respective broom.
+Cedric did not wait and did a barrel roll to avoid a scaly tail, while Vladmir shot upwards, nearly vertically, catching the attention of the dragons.
+
+He ignored the terrified screams of the students in the arena, the roars from the dragons, focusing on his objective: distracting his opponents and the dragons.
+
+**"Eject!"**
+
+Viktor Krum, who had gone to close from his egg, took the spell head-on, as Aleksei was distracting the dargon.
+
+Vlad's instincts made him do a pirouette, and he narrowly avoided a fireball and a murderous wing.
+A glance back made him see that Fleur and Matthieu were in a bad position, while Cedric was flying around their dragon, looking for an opening.
+
+**"Cut!"**
+
+Vlad did not put all his power in the spell, not wanting to harm the dragon.
+The spell hit the Swedish Short-Snout, who flapped his wings in response to the pain.
+The dragon swinged her tail to try ad touch him; but the Russian lazily avoided the attack and cast the spell again, making the beast roar.
+
+After a few seconds, Vladmir saw a spell fly towards him from the corner of his eyes.
+He sharply turned, so fast that the crowd held their breath when he flew towards Aleksei.
+
+**"Sorry, my brother,"** he whispered, holding him up by his collar to throw him on the other side of the stands.
+
+**"It's the game Vlad, so sorry as well,"** he heard him say before casting another spell.*
+
+This time, Vlad could not avoid it, way too close to Aleksei.
+The spell took him by surprise, and he screamed in pain before swerving on his broom, making him dangerously close to the dragons.
+
+Panting, he forced himself to climb to get away.
+He feigned to avoid a new fireball from his own dragon, noticing that she stayed desperately close to her nest.
+
+His body felt heavy and slow, and he grimaced when he coughed out blood, his breathing turning into a shallow hiss.
+He knew what he had to do, before being too weak.
+He could see Cedric worry, as he was still looking for an opening.
+Meanwhile, the proximity to the dragons had allowed Aleksei to nearly get back to Viktor.
+
+**"Swamp!"**
+
+The ground under Fleur and Matthieu suddenly turned into a huge traiterous swamp, making their movement hard and turning them into easy targets for the dragons.
+
+Good, it was time to move his own dragon.
+
+Cedric saw him start to move extremely quickly a few metres away from the head of the dragon, avoiding her teeth and flames with a phlegm that would have been amusing if he had not seen Vlad's pale face.
+Whatever Aleksei had cast, it was meant to weaken Vlad.
+
+He saw him increase his altitude and understood his plan.
+Meanwhile, he nearly stopped moving, making himself invisible for the dragons and their opponents.
+The former were focusing more on the closest and the moving targets, while the latter's eyes stayed on the huge reptiles and on Vlad, who was responsible for their woes.
+
+Then, suddenly, there was his opening.
+The dragon slightly straightened up, opening her wings.
+She did not realize until too late that something flew right above the ground in her direction to get his hand on the golden egg.
+He quickly pitched up and rose up, meeting Vlad in the air, smiling widely.
+
+"It's incredible!
+Our Hogwarts champions just gave us a spectable worthy of the greatest Quidditch players!
+The Diggory/Kemenov duo finished first in just five minuves and 6 seconds, thus getting the first 15 points!"
+
+Immediately, Vlad and Cedric flew down towards the stands and landed in an empty space which, they guessed, was reserved to them.
+
+Madam Pomfrey and Professor Prince ran towards them, as Vladmir, once on the ground, spat out blood, wheezing as he breathed.
+
+"What spell hit you?" the Mediwitch immediately started, casting spells on Vlad, then Cedric.
+
+However, both focused more in the two remaining pairs.
+The loss of one of her eggs had made the Swedish Short-Snout furious, and she was now unrelenting in her attacks on the four remaining wizards and witch.
+
+Then Aleksei had a genious idea, as the French duo was struggling in the mud.
+He turned himself invisible…
+A few seconds later, he finally caught the golden egg form his dragon and was running away as quickly as possible.
+Viktor saved him from a nasty burn by casting a spell in their Chinese Fireball's right eye, distracting her enough for Aleksei to get to safety.
+
+Before the two Durmstrang champions had time to get to the stands, the French duo managef to beat their dragon.
+
+Apparently, Fleur Dealacour had distracted the Welsh Green long enough for her teammate to prepare a spell.
+Matthieu had just cut his own arm to cast a pretty sark spell.
+The dragon fell to the ground hard, as the earth was moving around her to create solid chains.
+It did not protect them from the breath of the dragon, who managed to burn the bottom of Fleur's robes.
+
+As the last two got to the stands, muddy and slightly burned, Vladmir was busy reassuring the Mediwitch and his Russian friend on his condition.
+
+"I'm telling you it's not bad!" Vladmir sighed.
+
+"Yeah, right, you should have told me you were hit by this particular curse!" Aleksei screamed.
+"It should have just limited your breathing and stamina!"
+
+"He is right, Mister Kemenov!
+It's serious!
+Your lungs are 30% scar tissur, and your lung capacity is reduced by the same amount!
+This kind of spell can be fatal to you!"
+
+Vladmir winced at the memory of the burning in his lungs to try and reduce the massive bleeding that had failed to killed him.
+
+Suddenly, the judges stood up and motioned for the pairs to get back down the arena.
+All obeyed, more or less healed, with Vladmir, Viktor and Fleur being ordered to go to the Hospital Wing right afterwards.
+
+"Well," Ludovic Bagman started.
+"Your quickness in execution gave you points.
+Thus, Hogwarts starts with 15 points, Durmstrang with 10, and Beauxbâtons with 5.
+We will now give you your marks;
+For the Hogwarts team, our collected marks give you 44 points, along with your 15 points for being the fastest.
+Your only missed point is due to the injury caused to Mr. Krum following your ejection spell."
+
+Applause thundered, congratulating the feat of the Hogwarts students, while Durmstrang seemed worried about their hero.
+
+"The time you took to think before you acted was as good as your teamwork, as well as your ability to analyse the situation," Augusta complimented them with a smile.
+
+"Durmstrang, you have recieved 39 points, in addition to the 10 points for being seconds," Ludovic Bagman continued.
+
+"You proved your ingenuity, without being disconcerted by your opponents' sly attitude," Headmaster Karkaroff declared, looking daggers at Vladmir.
+"However, you have injured the dragon, which harmed your total of points."
+
+Apparently, this last sentence was not to his liking, but he had to follow the majority opinion.
+
+"Finally, Beauxbâtons, you earned 42 points, which brings your to a total of 47 points."
+
+"You had the most complicated conditions following the appearance of a swap.
+Howzever, you managed to work together, and above all adapt to your own styles of magic," Madame Maxime said, smiling proudly.
+
+"Congratulations to you six.
+You are a perfect example of the ingenuity of the new magical generation," the representative of the Department of Magical Cooperation, who had said nothing before, simply observing every one attentively.
+"You can now join your friends."
+
+"Congrats Pup!"
+
+Before Vladmir realised what happened, he got squished into a bear hug.
+Breathless, he struggled out to see a happy Remus Lupin, even if he was watched closely by Jack Riper and Sirius Black.
+Behind them, he could see Katya, smiling with pride, while Lucius, Sergei and a good chunk of clan Kemenov standing in a corner of the stands, loudly clapping for him, while, on the lower stands, the rest of the Alliance was screaming in joy.
+
+After all, Sergei was right, his fears were irrational.
+His family would always be there for him.
