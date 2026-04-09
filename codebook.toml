@@ -1,1 +1,25 @@
 dictionaries = ["en_gb", "fr"]
+
+ignore_paths = ["all_fr.md"]
+
+words = [
+	"Gryffindor", "Godric", "Gryffindors",
+	"Slytherin", "Salazar", "Slytherins",
+	"Ravenclaw", "Rowena", "Ravenclaws",
+	"Hufflepuff", "Helga", "Hufflepuffs",
+	"Tsesarevitch", "Vladmir", "Kemenov", "Katya",
+	"Vassili", "Vassilievitch",
+	"Theodore", "Nott", "Theo",
+	"Neville", "Longbottom",
+	"Mione", "Hermione", "Granger",
+	"Draco", "Malfoy", "Lucius",
+	"Lovegood", "Luna", "Xenophilius", "Amiphilius", "Leonis",
+	"Selwyn",
+	"Entwhistle", "Wyllt", "Myrddin",
+	"Leonara",
+	"Cho", "Chang",
+	"Weasley",
+	"Greengrass",
+	"wizarding",
+	"Portkey",
+]
