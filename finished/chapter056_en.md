@@ -1164,4 +1164,125 @@ The two Russians looked at each other in amusement when they heard the first lyr
 "Luna?" Vlad asked again, fetching his partner, for now in Neville's arms.
 
 He had never been happier to have invited the young girl.
-She had gone to the ex-USSR several times with her family of journalists, and was a true knowledge sponge
+She had gone to the ex-USSR several times with her family of journalists, and was a true knowledge sponge.
+While the traditional ballroom dances bored here, he knew that she like dances from foreign countries.
+
+Aleksei and Viktor were already walking on the dacefloor with two girls who were not their official partners.
+They were both Russian, and apparently, neither Aleksei's French grl, nor Daphne seemed bothered by seeing their partner stolen, since they did not know anything about Russian dances.
+
+Vlad whistled with several Russians, the noise ringing above the melody, while joining his freinds.
+They then started to dance, a show quite far from the conventional British balls.
+The steps were jumped or slightly slid, legs and back kept perfectly straight.
+They were simple steps, especially once they had adopted a circular formation.
+The voice was singing a famous song on a slow rythm, talking about a girl on the embankment, and a lover away at war.
+
+"Well, well, well," the singer cheered.
+"Our Russians are quite synchronized!
+Let's change the pace a little!"
+
+And the melody quickened.
+A Durmstrang student took his partner and made her quickly twirl to the middle of the room, other Russians whistling in response.
+He stayed less than a minute, before this time, two boys walked forwards, including Aleksei.
+
+"He is an excellent dancer," Vlad said with a smile.
+"Fiodor is his partner for most festivities in Russia."
+
+"A man?" Luna said in amazement.
+She had already seen Russian dances, but had always witnessed couples, never only men.
+
+"Look, you'll understand."
+
+Luna observed the two dancers.
+They jumped in pretty acrobatic figures, sometimes kneeling, sometimes standing.
+It was extremely physically demanding, and yet they stayed perfectly synchronized, regularly clapping their hands and feet, and it did not stop when the pace picked up again.
+
+"Those are men-only dances, and come from military traditions," Vlad explained while he and the other Russians clapped to give it tempo.
+"We call them **kazachok**."
+
+The Russian whistles rose up at a particularly impressive physical exploit and the song stopped suddenly.
+Applause at Aleksei's and Fiodor's performance started everywhere.
+
+Then Vlad went to the buffet and took a glass of juice fruit, mumbling about the lack of alcohol.
+
+"We can take care of that, partner," Fred whistled slightly, pouring a vial in Vlad's juice.
+
+"And since you're our boss, it's free!" George looked falsely enthroled.
+
+Vlad sniffed at his glass and smiled as he recognised vodka's burning smell.
+He downed it at once, sighing at the reinvigorating warmth of the traditional drink.
+
+"Alcoholic!"
+
+"How much did you sell?" the Russian chose to ignore the last comment.
+
+"Not much, it's hard with the staff watching us.
+Fortunately, Moody helps us."
+
+"Moody… helps you?" the Russian noted, looking at the one-eyed professor in a corner of the room.
+He felt their attention and raised his flask in cheers, before taking a big sip.
+
+"I can assure you that he's not drinking pumpkin juice," the twins said in unison.
+
+Vlad suspected as such.
+He turned his attention to his friends.
+Ronald was talking wiht Padma's twin, apparently his partner.
+The twins had helped him find decent robes, as they had for their young sister who was dancing with Colin Crivey, quite the improbable couple.
+Neville was dancing with a beaming Mary-Ann, and Kevin was in the middle of a lively conversation with the other fourth-year Ravenclaws and his partner.
+
+"Have you seen Draco," Vladmir eventually asked, frowning.
+
+"Not this evening…"
+
+"The dragon…" Luna whispered suddenly.
+
+Vladmir caught the glass that slipped from the young girl's hands just in time and put it on the table.
+
+"Luna?"
+
+"The dragon… he is hurting…
+Something bad in the school…
+The drgon sent his son…"
+
+"Where?" the Russian pressed softly.
+
+"The gardens.
+Follow me!"
+
+Luna took Vladmir's hand and pulled him towards the Entrance Hall.
+Nearly immediately, the twins followed and all four of them ran towards the park.
+
+Unsurprisingly, part of the snowed-over park was converted into small grottos and Luna was guiding towards one of them.
+The one furthest from the entrance, only a few hundreds of metres away from the Forbidden Forest.
+
+Vladmir then smelled something that he did not like… not in a magical school.
+He smelled blood.
+The smell was slight, barely perceptible in fact, but is was distinct.
+This little nauseating iron note, which Vlad had learned to be wary and afraid of.
+
+"The Dragon and the Xracups…"
+
+"Stay here, alright Luna?" Vlad whispered.
+"Fred?"
+
+"I'm staying with Luna."
+
+"Coming with you," George added.
+
+Vlad took out his wand discreetly, imitated by the redhead, and they followed the smell of blood.
+They were now quite far from the castle and visibility was low.
+Their steps squeaked over the thin layer of ice that covered the ice, and he raged in his mind against being in Hogwarts.
+Had he gone to Durmstrang, he could have learned how to be move silently in all environements from the vampires every weekend.
+But Katya had wanted to send him to Hogwarts.
+Vlad pushed back the diffuse pain he felt and focused back on his friend…
+
+The smell was stronger, more potent, and he cast a small light spell.
+George swore and immediately got out, sick, while Vlad was shocked immobile.
+
+There, a shapeless mass of blood and wounds moaned weakly.
+A body whose blond hair and hald-closed red eye were familiar.
+
+"Draco!"
+
+All the Alliance's Galleons burned in their owners pockets, making them freeze into place at the dread that overwhelmed them.
+
+Hundred of kilometres away, Hermione sobbed for no visible reason, her magical protectors looking on disconcertedly.
