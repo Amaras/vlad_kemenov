@@ -1,4 +1,4 @@
-dictionaries = ["en_gb", "fr"]
+dictionaries = ["en_gb"]
 
 ignore_paths = ["all_fr.md"]
 
@@ -8,18 +8,28 @@ words = [
 	"Ravenclaw", "Rowena", "Ravenclaws",
 	"Hufflepuff", "Helga", "Hufflepuffs",
 	"Tsesarevitch", "Vladmir", "Kemenov", "Katya",
-	"Vassili", "Vassilievitch",
-	"Theodore", "Nott", "Theo",
-	"Neville", "Longbottom",
-	"Mione", "Hermione", "Granger",
-	"Draco", "Malfoy", "Lucius",
+	"Vassili", "Vassilievitch", "Kemenovs", "Kemenov's",
+	"Theodore", "Nott", "Theo", "Notts",
+	"Neville", "Longbottom", "Longbottoms",
+	"Mione", "Hermione", "Granger", "Grangers",
+	"Draco", "Malfoy", "Lucius", "Malfoys", "Malfoy's",
 	"Lovegood", "Luna", "Xenophilius", "Amiphilius", "Leonis",
-	"Selwyn",
-	"Entwhistle", "Wyllt", "Myrddin",
+	"Lovegoods",
+	"Selwyn", "Selwyns",
+	"Entwhistle", "Wyllt", "Myrddin", "Entwhistles", "Wyllts",
 	"Leonara",
 	"Cho", "Chang",
-	"Weasley",
+	"Weasley", "Weasleys",
 	"Greengrass",
 	"wizarding",
 	"Portkey",
+	"Wrackspurt", "Wrackspursts",
+	"Pomfrey",
+	"Mediwitch", "Mediwizard", "Medimagic",
+	"Mediwitches", "Mediwizards",
+	"Auror", "Aurors",
+	"Albus", "Dumbledore",
+	"Gellert", "Grindelwald",
+	"Bellatrix", "Rodolphus", "Lestrange",
+	"Sasssly",
 ]
