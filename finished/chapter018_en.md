@@ -482,7 +482,7 @@ However, he only saw at the last moment the wave forming below him, and he swore
 He could not hear the scream, but he saw from the corner of his eye one of the last racers get swallowed towards the seafloor.
 
 His inattentiveness got him afraid once again when he saw the new arrow at the last moment.
-It was pointing him to howver above the sea towards the little creek nearby.
+It was pointing him to hover above the sea towards the little creek nearby.
 
 He took the opportunity to accelerate, betting on his reflexes to fork before the next arrow, and caught up to one of the flightracers ahead of him, who tried to block his way.
 Shamelessly, Vladmir lightly hit the back of the man's broom, which swerved vilently, allowing Vlad to pass him by.
@@ -521,11 +521,11 @@ Here they are!"
 Indeed, dots sprang out of the tree cover and were accelerating towards the cliff.
 Their speed was phenomenal, and all the spectators stood up to see the blur the racers left in their wake.
 
-"Wyan-Xi is ahead in this first lap," the comentator yelled, "follwed by Mekisv, Weasley, Palei, Nokurawa, and, what a surprise, the young Kemenov!
+"Wyan-Xi is ahead in this first lap," the comentator yelled, "followed by Mekisv, Weasley, Palei, Nokurawa, and, what a surprise, the young Kemenov!
 My friends, the leading group is firmly established!
 The strong trio of pursuers is not far from them.
 Vasquez, Gorgol and Danui have climbed in the ranking and try to catch up to the leaders.
-Their formation is excellent and very aerodynamix!
+Their formation is excellent and very aerodynamic!
 Will they be able to maintain it?"
 
 Vlad had plunged on the cliffs and his friends finally saw the real talent of flightracers.
@@ -533,7 +533,7 @@ While they had thought that the speed had been incredible until then, the sudden
 They were flying with a mix of learned technique and pure instinct, brilliantly turning sharply around the bends, barely missing the obstacles.
 At that speed, any impact could be fatal and the audience was staring at the giant screens that were covering the racers, and listening to the exalted commentary.
 
-One screen showed how a racer skimmed one of the trunks in the forrested area at the end of the second lap, and the mere touch made him swerve directly into a tree without any hope of recovery.
+One screen showed how a racer skimmed one of the trunks in the forested area at the end of the second lap, and the mere touch made him swerve directly into a tree without any hope of recovery.
 Magic exploded and smoke rose above the trees, while the pictures disappeared.
 
 "Falcolm badly managed his turn, but his protections seem to have worked!" the commentator exclaimed, while two Mediwizards disappeared quickly.
@@ -554,7 +554,7 @@ Under the crowd's cries, Mekisv, the tip, and Vlad, the centre, had just swapped
 "Vlad just used the power he acquired without constraint to speed up the formation," Kevin cheered, "that's genious!"
 
 The third and final lap had just started and the six leaders began out rivaling each other in ingenuity and danger to outpace each other every step of the way.
-Spell were casr in the open spaces, but never hit harder than slowing down some racers.
+Spell were cast in the open spaces, but never hit harder than slowing down some racers.
 The shortcut in the forest was efficient once more and made the leaders split up, reducing their number to four.
 
 "Come on Vlad!" Hermione yelled, quickly followed buy her friends when the racers got to the final stretch.

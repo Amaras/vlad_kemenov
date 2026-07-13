@@ -668,7 +668,7 @@ _"SSSalasssar Slytherin,"_ Kevin suddenly hissed.
 
 The statue moved, a spark of life lighting in the stone eyes.
 
-_"WHo are you, sssspeaker?"_
+_"Who are you, sssspeaker?"_
 
 _"Name doessss not matter, Founder, only the line countsssss,"_ Vladmir declared.
 
@@ -688,10 +688,10 @@ _"Only my line Sssspeaksss!"_
 
 _"Then we are from your line,"_ Vladmir soothed.
 
-_"No one entered here in ssssencutires.
+_"No one entered here in ssssenturies.
 Welcome, Heirssss!"_
 
-The staue slowly pivoted, as if rusted by time, and Hermione looked at them.
+The statue slowly pivoted, as if rusted by time, and Hermione looked at them.
 
 "You know you spoke alone?
 Parsletongue was the key?"

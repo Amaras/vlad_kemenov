@@ -36,7 +36,7 @@ I think the youngest is called Dorian Helwynn, not Greengrass."
 Vladmir nodded, still looking at Daphne's father who was approaching them.
 
 "Lord Malfoy, Lady Longbottom, it is a pleasure to see you again.
-Ladies, gentlement, I am Dwayne Greengrass."
+Ladies, gentlemen, I am Dwayne Greengrass."
 
 "Dwayne," Lucius briefly greeted him," Let me introduce you to Lady Kemenov and his heir, as well as the Saint-Petersbrug Knyaz."
 
@@ -45,7 +45,7 @@ He was obviously feeling uneasy, and Vladmir vaguely smiled as he slightly bowed
 
 "Mister Greengrass..."
 
-From Lucius's presentations, not only did Daphne's father not have a title--he did not use any title in the usual presentation-- but he was not in the Malfoy family's good books.
+From Lucius's presentations, not only did Daphne's father not have a title — he did not use any title in the usual presentation — but he was not in the Malfoy family's good books.
 One only had to hear Lucius use only his first name with such familiarity, and his cold greeting, even for an aristocrat...
 
 While the adults exchanged usual trivialities, Vladmir thought that he should brief Hermione and Kevin on etiquette and the rules of presentation before the start of the Saturnalia Ball.

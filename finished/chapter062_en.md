@@ -855,4 +855,281 @@ Swearing, he tried to contact them again, still following the magical compass in
 'Merlin,where are you?' the Russian yelled mentally.
 
 'Busy with three fucking Death Eaters!'
-30475
+
+Vladmir score again and hit a couple of young lovebirds.
+Ignoring the offended yells from the wizard, he took out his want and quickened his pace.
+
+His magical guide brought him between two dark alleyways and he opened his eyes wide.
+A simple but powerful spell, a very dark version of the Muggle-Repealing Charm for wizards, prevented passers-by from looking at the small passageway.
+Without his own spell, he would never have noticed it.
+
+In one quick wave of his wand, he sent Sergei a Patronus, preying that he receives it quickly.
+Then, he breathed in deeply before returning to his war mask and stepping into the spell.
+
+Kevin and Neville were fighting with a man, two bodies on the floor showing that they had managed relatively well until then.
+However, it was not the case against their last opponnent.
+He was a man with cloudy white hair, light grey eyes, and a corpse-like face that was prematurely wrinckled.
+
+**"Rip!"** Vladmir yelled as Neville brutally hit a wall, still managiing to protect himself with a powerful shield.
+Part of the face of the young Lonbttom was burnt and his left shoulder was outright butchered, muscles and tendons visible under ripped clothes.
+Kevin, for his part was panting and visibl limping, a hand against his stomach.
+
+The Russian's spell ripped their attacker's wand arm, but he simply changed hands, a thin smile on his lips.
+
+`Not a Death Eater, Kevin,` Vladmir hissed softly.
+
+`Grindelwald, then,` the Muggle-Born spat out, casting another vicious spell at their ennemy, who deftly avoided it before stopping to look at them, still smiling.
+
+"Ah…
+Do I finally have the pleasure to meet the young Tsesarevitch?
+Your Imperial Highness."
+
+"Gellert Grindelwald… after spending the last forty years of your life in the shadows, you are finally showing yourself?" Vladmir asked carefully, slowly moving towards Neville who was on the verge of passing out.
+
+Kevin also moved towards them, shilding his friends from the most famous Dark Mage in Europe.
+
+"It is for the greater good," the old Dark Lord sighed.
+"You have managed to have my dear Albus sacked from all the positions we have spent years to reach!"
+
+"It was not smart to directly attack me," Vlad said slowly.
+"Nor was harming the allie of the Potter family."
+
+"I have to admit that Albus can sometimes be a bit reckless and impulsive."
+
+"And killing the heirs of the Five Families was impulsive?" Kevin hissed while Vladmir was giving Neville a potion to wake him up for a few moments.
+
+"I am not a specialist of British roaylty, but I think I am dealing with a young Knight-Mage, aren't I?" the old mage bantered, ignoring the blood coming off of his arm.
+Vladmir was too busy healing Neville to see the imperceptible wand movements from Grindelwald.
+
+`Vladmir?`
+
+`No, Kev, wait a bit, you're not strong enough!
+Merlin, I am not even sure I could injure him in a duel!
+Why he hasn't attacked yet, I don't know, but let him talk!
+It will leave some time for the others to arrive.`
+
+Vladmir stood up and positioned himself next to his knight, while Neville took a potion out of his secret knapsack and gulped it down.
+
+"You have not answered."
+
+"Britain was the most fragile society in Europ, with Albus already in place in most decisional places and the attention too focused on Voldemort to notice me.
+Our only obstacles were Voldemort and the latent power of the Five Families," the Dark Mage graciously explained.
+
+`It's a giant chess game,` Vladmir whispered.
+
+`What do you mean?`
+
+`Voldemort, Grindelwald, Dumbledore, the Five Families…
+It is a giant chessboard and we are in the middle of it like idiots…`
+
+"In a language understandable to the average wizard, it would be more curteous, young man.
+Such a lack of respect for your elders deserves a little punishment."
+
+Vladmir did not have time to react, nor did Kevin, and Neville even less, as he was still weakened.
+The spell Gellert Grindelwald had prepare for a few minutes fell down on them.
+A strong pressure crushed them, preventing them from breathing and moving.
+They were feeling like they were under the water, but a thousand times stronger.
+
+A crack rose us when Neville's ribs, fragilised by the impact with the wall, started to break under the pressure.
+
+"Such a beautiful spell, isn't it?" Grindelwald declared with a warm smile.
+"How Kemenov managed to survive it, I don't know.
+I was sure she was dead, but anyway."
+
+Vladmir barely heard him, too busy focussing his magic in his body to avoid being turned into mush.
+Kevin, for his part, did not hear anything other than the beating of his heart in his ears.
+Neville, was fighting to avoid passing out from the pain and dying.
+
+The spell stopped suddenly and the three teenagers collapsed, breathing deply despite the pain in their torso.
+Until the distinctive Apparition crack rang.
+
+Vladmir was the first to raise his head and he screamed.
+The harrowing sound made his friends react.
+Sergei was standing in front of them, his fangs and claws covered in red human blood.
+But the black blood staining his clothes was a vampire's and it sprang from the twenty or so deep lacerations.
+
+Sergei gargled and fell to his knees in front of them.
+
+**"No… Sergei…"** Vladmir whispered, taking the vampire into his arms, tears rolling from his eyes.
+
+"Grandfather!" Neville yelled and he stood up, ignoring the pain of his chest and broken ribs.
+
+Sergei smiled weakly, satisfied to have saved what was important for him.
+Vladmir's Patronus had found him while he was talking with Lucius.
+The latter was ready to intervene with Sirius and one of the bodyguards hi he called them, but he could not talk any more…
+The spell had ripped his throat and vocal chords at the same time…
+
+He did not look like a humain any more.
+His features were covered with veins right under the skin, the red of his iris had spread to his whole eyes, and a hoarse hiss left his chest.
+
+It was not hard to understand that the vampire was dying in Vladmir's and Neville's arms.
+
+The young Russian yelled out his pain as the vampire was still groaning, his eyes coudy.
+Sergei was fighting against his vampire instincts that screamed at him to bleed the three preys full of blood next to him.
+But his mind and his heart were screaming back not to heart his family.
+
+**"No, no!
+Sergei, please, stay with me!
+Sergei!
+Look at me… please!"**
+
+**"Grandfather, you… you promised you'd come…"** Neville sobbed.
+**"Mom wanted you to meet your future godson… she wanted you t obe my little brother's godfather!
+Please Sergei.
+I have always wanted a big family, don't leave me!"**
+
+Kevin, staying back, was looking at the scene like through a television screen.
+His best friend's aunt was in the hospital… his near-father was dying in his arms.
+Neville's grandfather…
+And he could not do anything.
+
+Vladmir was trying to heal the impressive wounds all across the vampire's body, especially the ones in the neck, which had nearly decapitated him.
+Only some magical creatures could survive, but not for long.
+Neville was using healing potions, but nothing could save Sergei from such impressive injuries… except…
+
+Kevin looked at Vladmir and Neville.
+It was the first time he ever saw them so distraught, begging Sergei to stay with them.
+He sighed, then knelt down next to them.
+
+"Vlad… do you know how to Apparate?"
+
+"N… No."
+
+"Can Ubista?"
+
+"Yes."
+
+"Go find Hermione then."
+
+"What…"
+
+"I will not be able to keep him alive for long," Kevin smiled softly.
+
+"NOO!" Neville and Vladmir screamed at the same time.
+But Kevin had already deeply cut his already very injured arm and had pushed it toward Sergei's mouth.
+
+Although the vampire could have stayed put with the small quantity of blood around him, he could not resist the suddenly strong smell.
+Kevin moaned in pain when Sergei instinctively bit down hard on the source of his blood, ripping the flesh.
+
+"Go get her!" Kevin screamed, Neville still doing his best to limit the loss of blood.
+
+Vladmir whispered his House Elf's name and Ubista appeared suddenly.
+the small Elf opened his eyes wide when he noticed Sergei's condition and rushed to Hogwarts at Vladmir's order.
+
+Hermione, who was having breakfast with Fred and George at the Hufflepuff table, did not have time to understand what was happening.
+A familiar House Elf appeared in front of her and took her by the arm.
+She only had enough time to yelp in surprise before she appeared in the middle of an alleyway, blood's ferrous and sickening smell floating around them.
+
+"Mione!
+Please save him!" Vladmir moaned.
+
+Hermione grew pale as she understood the situation, as Ubista left again, finding reinforcement.
+
+In the time necessary for her to rush to Sergei's side, Sirius, Lucius and one of the guards appeared.
+Ignoring the newcommers, Hermione did what Vladmir told her.
+
+She slit her arm and brandished it under Sergei's nose, who was still clinging to Kevin.
+No one saw the vampire move.
+One moment he was draining her young Ravenclaw, the next, he was holding Hermione against him with a surprising softness for his condition.
+
+The action was too fast for the three adults.
+However, Sirius reacted fast enough to catch Kevin.
+The young Muggle-Born had just falled unconscious and the former prisonner, with Neville's help, was making him drink a blood regeneratio  potion.
+The other stayed frozen, focused on Sergei and Hermione.
+
+**"Sergei, you need to take a bit of her blood,"** Vladmir whispered softly, as the dying vampire was doing his best to protect the young Licorine.
+
+**"Bad…"**
+
+Fucking protection instinct," a vampire grumbled suddenly as he appeared.
+He looked around him and could only note one thing: it was a massacre.
+
+Cain, Lord of the vampires in London and England, looked around the fight area.
+The place was destroyed, two bodies laid on the ground, and the Lord of Saint-Petersburg would rather bleed out than be healed by a Licorine.
+
+"Now's not the time Cain!
+And what are you doing here?" Vladmir roared
+
+"I was the one who sent him a Patronus when Ubista got us frm St-Mungo," Lucius calmed down.
+
+"And he did the right thing, Vladmir Vassilievich.
+His vampiric instincts have taken over.
+We are only a dozen on earth who can reason him right now," Cain explained before losing his own humain appearance.
+
+The two vampires stared at each other, emittinf strange growls, but Cain did not try to move closer.
+He did not want to fight against a trapped vampire.
+
+After a few minutes, Sergei agreed to take some blood from Hermione's arm.
+Meanwhile, she had grown terribly pale.
+Sergei's blood, black, and Kevin's deep red, had covered her face and clothes while the vampire was holding her against himself.
+While seeing blood was not too disturbing, being covered in iit from head to toe was very different.
+
+"He will need blood," Cain declared slowly, looking at Sergei deferentially take a miniscule amount of the young Licorine's blood.
+Nearly immediately, he seemed to come back to himself and an horrified loof appeared as he looked at Hermione.
+
+"I…"
+
+But he could not say anything.
+He simply fainted, his injuries tiring him.
+Hermione supported him as best she could before collapsing under the sudden weight.
+
+"Let me get him, Hermione," Nikolai declared suddenly, appearing to relieve the young girl from the dead weight.
+
+"We are getting him back to St-Petersburg," Steva said, before looking at the young Kemenov heir.
+**"Vladmir Vassilievitch?"**
+
+**"I'll be okay, Steva.
+Take care of him…"**
+
+**"Yes, Little Father."**
+
+The three vampires disappeared immediately, quickly followed by Cain who had no more reason to stay.
+Vlamdir sighed, then looked at Neville and Kevin, expertly healed by Sirius, who was a master of healing spells.
+Relieved and exhausted, he let himself finally fall to his knees.
+A guard approached immediately, whom he recognised as Fredirch.
+
+**"Katya?"**
+
+"**Borislav, Sarovina and and Auror look after her**
+Lord Malfoy?"
+
+"Yes?"
+
+"I want an International Portkey.
+We go back to Russia.
+All of us," the Russian guard added coldly, mentioning Katya without naming her.
+
+"The paperwork…"
+
+"I don't care about paperwork," Fredrich groaned.
+"Our Matriarch and heir both nearly died.
+Our oldest ally is between life and death.
+I refuse that members of Clan Kemenov stay in Britain."
+
+"Vladmir," Lucius tried, looking at the teenager.
+
+"No," Vladmir Vladmir said slowly, looking into Lucius's eyes.
+"The Clan Kemenov Matriarch will be repatriated to Russia.
+**Ubista?**"
+
+**"Yes, Vladmir Vassilievitch?"** the House Elf replied still healing Neville's shoulder with Hermione's hesitant help.
+
+"**Take contact with the Russian Ministry.
+I think Katya still has one favour left.
+I want the paperwork done within the next hour.
+Then tell Lord Longbottom that his son is at the Kemenov Palace.**
+Lucius, I don't care about the cost, but I need this Portkey in a quarter of an hour.
+My men will take care of the alleyway and the corpses."
+
+The blond Lord looked at the young man collapsed on Fredrich, feeling the backlash of one of the most atrocious compression spells he had ever heard of.
+But even in this position, he managed to be authoritative.
+Lucius finally nodded.
+Creating an international Portkey was in the _Underground_'s abilities, even under such short notice.
+
+He was about to leave when Vladmir called him.
+
+"Tell Katya that she can prepare the ritual."
+
+"What ritual?"
+
+"She will know," Vladmir said with a dark expression, while Fredrich smiled.

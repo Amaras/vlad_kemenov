@@ -584,7 +584,7 @@ Hermione asked for him and the Selkie stared at them with his yellow eyes.
 Vlamdir sighed and took out an ancient knife from his pocket, a knife that most Dark Wizards used only for rituals and sacrifices.
 Without blinking, he slit the palm of his hand and slowly approached the squid.
 
-The blood mixed with water and a tentacle came to brush the scarlet curent before moving away from Vladmir, clearly opening the passage to him.
+The blood mixed with water and a tentacle came to brush the scarlet current before moving away from Vladmir, clearly opening the passage to him.
 
 One after the other, they imitated the Russian, passing the test without a problem.
 As Hermione, the last one to give her blood, put the blade against her hand, two cries rang out and a tentacle stopped her.

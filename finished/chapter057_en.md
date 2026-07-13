@@ -2,7 +2,7 @@
 
 The office of Augusta Longbottom, Hogwarts Headmistress, member of the Wizengamot, Triad of the Underground, and Matriarch of the Noble and Ancient House Longbottom, was filled in a thick silence.
 
-For all the students in the room, and probably any idiot who would have been stupid enought to bother the Headmistress in this dark hour, it was not difficult to feel the hatred.
+For all the students in the room, and probably any idiot who would have been stupid enough to bother the Headmistress in this dark hour, it was not difficult to feel the hatred.
 It was nearly palpable, floating in the air and emanating from the eight people around the desk.
 
 Violent emanations of raw Dark Magic, freezing cold and breezy, were also mixed in the hatred.
@@ -518,7 +518,7 @@ Neville cleared his throat before starting to read for all his friends.
 "Tsk, this rag is starting to annoy me," Vlad groaned.
 
 "What's angering you?" Hermione asked, wondering.
-"For once, the _Dailty Prophet_ shows the truth relatively well!"
+"For once, the _Daily Prophet_ shows the truth relatively well!"
 
 "'The Malfoy family's tumultuous past'?" the Russian raged, also unseating Fawkes who did not like his perch to be so prone to moving.
 "I'm going to Gringott's as soon as I'm out!
@@ -561,7 +561,7 @@ Something that was not inconsequential.
 **"You are Grindelwald's Phoenix."**
 
 Fawkes stopped straightening his feathers and raised his head, his burning red eyes staring into Vlad's own.
-The Aurors had frozen at the use of a foreing language.
+The Aurors had frozen at the use of a foreign language.
 Lord Malfoy had done a great job telling them about the actions of the children, otherwise they would have yelled against a conspiracy.
 But Vlad knew that Russian was understood by all the Alliance members.
 
@@ -573,7 +573,7 @@ But Vlad knew that Russian was understood by all the Alliance members.
 When Dumbledore and Grindelwald were actually allies?
 When they were the Alliance's enemies?
 
-Fawkes chirped painfully ans seemed to deflate as he looked at André pleadingly.
+Fawkes chirped painfully and seemed to deflate as he looked at André pleadingly.
 
 **"No? Really?"** the Sorting Hat said joyfully.
 
@@ -581,7 +581,7 @@ Fawkes chirped painfully ans seemed to deflate as he looked at André pleadingly
 **"Fawkes was spying on us from…"**
 
 **"No,"** André stopped him.
-**"I was wring.
+**"I was wrong.
 He _was_ Grindelwald's Phoenix.
 When the Dark Mage split his soul to survive prising, he broke his bond with Fawkes.
 He was waiting in Hogwarts for the arrival of his new wizard or witch."**
@@ -591,7 +591,7 @@ But for now, it was not the most important thing for Kevin, still on his window 
 
 **"Who is his new wizard, or witch?"**
 
-**"He is the Licorine's Phoenix, boud to her by nature,"** Luna declared.
+**"He is the Licorine's Phoenix, bound to her by nature,"** Luna declared.
 
 **"For now, Fawkes follows Hermione because he is a Magical Creature,"** Vlad translated.
 **"Until he finds his wizard or witch, he will be loyal to the Alliance."**
@@ -606,7 +606,7 @@ Maybe it's one of you?"**
 **"Maybe Vlad?"**
 
 **"I doubt it,"** the Russian sighed.
-**"Familiars are exclusive, whatever they are, and I already had Sasha."**
+**"Familiars are exclusive, whatever they are, and I already have Sasha."**
 
 **"Kevin has two familiars,"** Hermione said in surprise.
 
