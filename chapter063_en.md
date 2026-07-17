@@ -549,3 +549,343 @@ We generally do not hide."**
 
 **"Olga detected her a few minutes afterwards and I told her it was an ally presence.
 You must observe your companions much more closely."**
+
+Olga did the same strange hand gesture that Vladmir had done for her, and Timofei smiled apologetically.
+The sign was the one the Kemenov guards used to mention an ally or friend during missions.
+
+**"How did you feel her?"** he eventually asked Olga.
+
+**"Through experience.
+You are still too young to feel the presence of vampires, but you'll get to it, especially since we are long-term allies wiht the St-Petersburg clan.
+I have a shiver in my neck.
+Your father has a pinching feeling around his belly, and I think Lev has an old vampire bite that itches at this moment…
+You will learn to listen to your body.
+We are preys for vampires and we react as such.
+Listen to your body, it will warn you."**
+
+**"The Kemenov Palace is like a second home for us, you'll learn to detect us pretty quickly,"** Steva agreed.
+
+**"Did you do what I asked you?"** Vlad then asked, observing the young vampire.
+
+**"Of course!
+I've just left the _Sermirov_.
+Apparently, the _Underground_ has an Auror in its pocket, because I have got the report in under two hours after putting forward the mission to hte Courts.
+I barely had time to go to the hairdresser!"**
+
+Olga could not help but laugh when she saw Timofei's face.
+Anton's son did not yet know Steva.
+The young vampire was always excentric, seemingly taking everything with a pinch of sault and changing behaviour in a few seconds…
+
+Steva winked charmingly at the young man before holding out a relatively thick report to Vladmir.
+The latter thanked her and skimmed over the report.
+
+It was the most ordinary report, including Katya's statement.
+As he read the data, weak, and the list of spells found on his aunt, he noticed the chronology.
+He had not realised before, way too shocked and furious to notice this crucial detail, but it was wrong.
+Katya _died_ in that alleyway, but she was found quickly after the attack.
+Because of the curse, she could not have stayed under her cat form so little time.
+
+Ubista had admitted that he could not find her for several hours.
+Because he had probably looked for a _human_ magical signature first.
+But Katya should have stayed in a magical coma for eight days.
+Because of her injuries, those eight days should have been fatal.
+After all, the curse only healed the direct causes of death when reanimating recipients.
+But the numerous haemorrhages should have killed her again and used the ninth life… Something was wrong.
+
+**"I think it is time to go home,"** Vladmir declared, putting the report in his pockets.
+
+The three Russians, who had continued talking, simply nodded their head.
+Olga lookd outside the inn and frowned.
+It was already night and the last time Vladmir had walked St-Petersburg at night, it had gone pretty badly…
+
+**"Floo network."**
+
+Vladmir looked at one of the most senior guards of the Kemenovs and slowly nodded.
+He kenw the professionalism of his clan's guards and they were the ones best placed to protect him.
+
+**"Thanks for the glass!"** Steva said while standing up, kissing Vladmir's and Timofei's cheeks.
+**"I'll let you know about Sergei, Kitten!"**
+
+**"She…"***
+
+**"That's Steva for you,"** Olga said, amused, looking at Timofei who had turned scarlet at the vampire's kiss.
+**"Vladmir spoiled you for your first real mission."**
+
+**"He's gonna have to get used to it,"** Vladmir said calmly, putting a few Galleons on the table.
+**"Today has been pretty calm compared to Katya's."**
+
+The journey back to Kemenov Palace was calm and quick and Vlad thanked his guards with a smile.
+Then he went to see his friends and famil.
+
+Kevan was already sleeping, still in the infirmaty, while Neville and his parents were in the drawing room with Katya.
+Vlad refused to join them, arguing he had a last minute meeting scheduled.
+Nobody doubted it and he locked himself in Katya's office.
+
+**"Ubista!"**
+
+The small House Elf and Kemenovs' assassion appeared in front of him, and Vlad could briefly see his surprise before he became as expressionless as ususual.
+
+**"What can I do for you, Vladmir Vassilievitch?"**
+
+**"Answers.
+Sit down."**
+Ubista hesitated slightly, then obeyed.
+He jumped when Vlad threw a dossier on his lap.
+
+**"Read."**
+
+This time particularly worried, Ubista obeying and skimming through the data.
+It was the Auror's report on the clan matriarch's attack.
+
+**"I don't like omissions,"** Vlad growled.
+**"You better explain yourself on several points."**
+
+**"Katya Annapovna is my Mistress.
+The bond we have immediately informed me of her health,"** Ubista started.
+**"When I could not immediately find her, I used my magic to make myself appear next to her.
+She was in cat form and her injuries were too important for her to survive for eight days without being healed.
+Additionally, her disappearance for such a long period would have been alarming for many people."**
+
+**"What did you do exactly?"**
+
+**"I asked for Lord Rasputin's help,"** the House Elf admitted.
+**"He has somewhat frozen her so that her injuries do not kill her and stay put.
+She is currently sleeping under my supervision."**
+
+Vladmir pinched the bridge of his nose as he remembered the list of curses.
+The icy death curse was on top of the list.
+Because of the lack of physical symptoms like frostbite or burns, Aurors had thought she had not been hit directly.
+
+**"Time Turner?"**
+
+**"Yes."**
+
+**"It is unadvisable to use them for several days,"** Vladmir noted calmly.
+
+**"I know, but in the moment, I had no other idea,"** the House Elf admitted.
+
+**"Are you at Grigori's?"**
+
+**"We are."**
+
+**"You did the right think,"** Vladmir said eventually.
+**"But next time, please immediately tell me the truth."**
+
+Ubista agreed as he closed the dossier.
+He put it on the table and waited for the current Patriarch of the Kemenovs to dismiss him.
+
+**"I need you to put in an official request to the British Court,"** Vlad said finaly.
+**"I want the name of Katya's informer, the one who betrayed her…
+Only the Triads know the complete list of the _Underground_'s informers and Katya assured me it was one of their members."**
+
+Ubista had a predatory look.
+
+**"What do I do if I get a name?"** he asked, looking bloodthirsty.
+
+**"He will taste clan Kemenov's hospitality,"** Vladmir spat out in anger.
+**"You do what you want with them, but I want answers."**
+
+A few seconds later, another House Elf appeared to tell Vlad that he was awaited for dinner.
+It happened in a relaxed atmosphere, with the Longbottom family and Kevin, until they needed to leave the Palace and return to Britain.
+Neville and Kevin had to return to Hogwarts the next morning.
+
+Vladmir looked at them leave, uneasy.
+His two friends had come to support him and left the palace injured…
+
+He knew too that they worried for him…
+It was normal, after all.
+He had three powerful enemies that did not hesitate to harm his family and friends.
+The first, the so-called Dark Lord, was personally targeting him because of the prophecy…
+The second one was cross with him for getting him sacked of the major positions he held.
+The third one was targeting the Five Families more than him, but he still was one of their members.
+And he was not invisible or immortal.
+
+He did not want to cause them too many issues, and he had finally accepted Katya's proposal.
+By renewing the curse on the Kemenov line, he hoped to reassure his close friends and kin, especially his aunt…
+She had talked his ear off about his ability to get in impossible situations.
+Meeting Voldemort, Tri-Wizard Tournament, clan wars, and even flightracing… so many potentially lethal situations.
+But more than Katya's moving plea, it was Sergei's intervention to save them that had shaken him and made it click… even if it was not directly linked.
+They were always here to protect him, putting their own safety at risk…
+He had finally agreed to Katya's plan.
+
+<hr>
+
+Thus, he was with his aunt, his favourite Dark Mage, and his wife in the Kemenov Palace basements.
+Katya Kemenov and Grigori Rasputin were much more serious than usual.
+Praskovia Rasputin was sitting down in the only chair of the room, reading a book despite the darkness.
+After all, the basements of the Kemenov palace were not the warmest or most inviting spaces of the clan's ancestral home.
+
+Apart form the prisons, the caves and the storage rooms, the basements were made of three huge vaulted and very cold rooms.
+The first was a Potions laboratory that Vassili, Katya's grandfather, as moved after a violent accident.
+The explosion had destroyed three retaining pillars, weakening the palace.
+A Muggle house had completely collapsed, but magic had saved the palace itself.
+Vassili Kemenov had moved the laboratory upstaired, in the wing that was furtherst from the clan.
+THe other two were the charms and duelling rooms.
+They were fully empty, completely protected thanks to thorusands of runes and charms.
+The four of them were standing in the largest of them.
+
+**"What do we need for the ritual?"** Praskovia eventually asked, looking up from her book, an old grimoire stamped with the Kemenovs' shield.
+
+**"Nine humans and nife Kneazles,"** Vladmir replied with a sigh.
+
+**"I suppose you have them already,"** Grigori declared.
+
+**"Yes, in the prisons,"** Katya snickered.
+
+She knew she would win the argument and had already gathered the prisoners.
+
+**"Opponents of the clan?"** Praskovia asked with a smile.
+
+**"There are two, the others are common law prisoners."**
+
+**"I do not want to know how you managed to get them out of the gulag,"** Praskovia grumbled, standing up.
+**"I think you want me here to trace this?"**
+
+She showed a complex drawing in the book that she was reading before.
+It was associated with schematics and precise instructions…
+While Praskovia Feodorovna Rasputin was generally the perfect model of the housewife, she also had a deep mastery of runes.
+
+**"It is one of he darkest curses I have ever seen,"** Praskovia said slowly.
+**"And the drawing is complex.
+Why hasn't it been put on Natashka Aleksandrovna Romanov?"**
+
+**"She did not have any magic in her.
+She would have died from it,"** Vladmir groaned.
+
+The last descendant of the Romanovs was, like the rest of her line, totally non-magical.
+Even if she lived in the wizarding world, she could never have handled the nine souls inside her.
+
+The Grigori turned towards Vladmir.
+The young man had been able to rest when Katya had taken back the reigns of the clan, the day after the Longbottoms left.
+His features were relaxed once more, even if Grigori could feel a tension in him.
+
+**"Are you sure about this?"** he asked.
+
+**"I am.
+Everyone is worried and gets injured because of me,"** Vladmir whispered, thinking about Sergei and Katya.
+
+**"It would reassure me if he had the curse instead of me,"** Katya confirmed, **"but e refuses to take it."**
+
+**"You could have forced him to accept it,"** Grigori said, ignoring Vladmir's furious growl in response.
+
+**"And break his trust even more?
+No thanks."**
+
+**"I trust you!"** Vladmir took offence.
+
+**"I know, Kitten, but I kepts secrets from you that I should have revealed,"** Katya whispered.
+
+Grigori and Praskovia looked at each other, then started to prepare the ritual as described in Katya's grimoire.
+They let the two Kemenovs talk, althought the silence of the huge room let them hear any and all words they said.
+
+**"Raised voices,"** Praskovia whispered.
+**"Is it really a good idea to let them talk now?"**
+
+Indeed, in the opposite side of the room, the two Kemenovs had started to argue louder.
+
+**"Vladmir was still holding back several things.
+He did not want to argue with Katya while she was injured.
+It is good that they talk it out before he returns to Hogwarts."**
+
+**"Why?"**
+
+**"With the distance, the Tri-Wizard Tournament, and his ennemies, Vladmir would have time to ruminate every detail and rancour.
+I have to admit that the Horcrux influenced him too much, but this piece of shit used his existing emotions and feelings."**
+
+Praskovia sighed and finished the large nin-pointed star.
+It was a bunch of complex lines and curves that she had perfectly drawn.
+On every point were two overlapping circles of different sizes.
+Then with her husband of a nearly a century, she started tracing the runes.
+
+Meanwhile, Vladmir had once again turned to Katya after having, once again, let his rancours and insecurities out.
+
+**"Why do we spend the little time we have together arguing?"** he eventually asked wearily.
+
+Katya stepped forward hesitantly.
+Vlad took a step back in response and shook his head.
+
+**"Not now,"** he whispered.
+
+**"I wanted you to go to Hogwarts so that you left the familial circle, and got your own experience.
+I would never have imagined that your presence there would trigger so many things.
+I regret it and yet…
+You are becoming strong, so worthy of the Potters and of the Kemenovs…
+I am so proud of you, Kitten…"**
+
+**"We are done,"** Grigori declared, walking towards the two Kemenovs.
+
+Katya put a hand on her nephew's shoulder, asking him if he knew what he had to do.
+He simply nodded and removed his robes and shirt, wlaking towards the center of the huge geometric pattern.
+
+**"Tark, Ubista?
+Bring in the sacrifices,"** Katya said calmly.
+
+THe two House Elves appeared and bowed after getting their orders.
+A few seconds afterwards, they started to reappear with unconscious people.
+
+With a bit of magic, Grigori placed the prisoners in the largest circles at the extremities of the nine-pointed star.
+In a few minutes, the men and women who would become sacrifices were in position and unconscious.
+He did the same for the nine Knezles in the smaller circles.
+
+Vladmir was sitting down in a meditative position, breathing calmly, as the ritual was about to begin.
+Grigori Rasputin looked at him with a few seconds before turning to Katya.
+The Clan Kemenov matriarch nodded and held out a richly ornamented knife with a sharpblade.
+Then she let the room to the Dark Mage, moving to the other side of the room with Praskovia.
+She could not take part in the ritual, since she was also a holder of the curse.
+No one could predict the consequences if she participated…
+
+With smooth gestures, Grigori started the dirtiest and most degrading part of the ritual.
+Emotionless, the Dark Mage moved to the first man, held his head back, and precisely slit his throar.
+He immediately moved to the next one and quickly did his deathly work.
+
+The blood that flowed seemed to run along the runes and lines.
+In a few minutes, the patterns Praskovia had traced were covered in it and seemed to absorb light.
+Then Rasputing started to whisper hoarse words in Old Slavic.
+
+The circles surrounding the deads started to glow in a silvery light as their soulds, imprisonned by the runes, appeared.
+At Grigori's words, they were forced to go into the next circle, the Kneazle ines.
+Cats, were they magical or not, were guides for lost soulds, and unsurprisingly, the souls rushed into the small creatures.
+
+Then Grigori killed one Kneazle after another, forcing the souls to move towards Vladmir.
+The young Russian's body absorbed them all before slowly falling to the ground when he received the ninth sould.
+
+**"Grigori?"** Katya worried.
+
+**"He is okay.
+His body needs time to adapt.
+It is not made to contain so many souls."**
+
+The Dark Mage had just entered the nine-pointed star.
+The ritual had just finished and the room looked like a massacre happened.
+The patterns had disappeared, leaving only pools of blood and lifeless corpses.
+
+He slowly held Vladmir up and said that he was bringing him to his room.
+
+**"Ubista?
+I'll let you take care of the corpses,"** Katya declared as the House Elf appeared.
+
+He smiled darkly before the four Russians disappeared into the corridors of the Kemenov palace.
+The thestrals would have something interesting to eat…
+
+<hr>
+
+A few hours later, Katya was at her nephew's bedside, thinking.
+
+"Okay, what did you discover?" she finally asked her fiancé, who was standing at the entrance to Vladmir's room.
+
+Lucius approached her and put a hand around her waist bfore kissing her on her temple.
+
+"Hello to you too," he snickered.
+
+He only got a dark glance in response, but smiled in amusement in response.
+Although Katya could be patient in many cases, vengeance was rarely one of them and he knew her well.
+She wanted the head of the two wizards that attacked her nephew and heir, as well as herself.
+He finally got what he wanted and she tenderly kissed him herself.
+
+"Vladmir was right to ask the Goblins, they succeeded where we failed," Lucius smiled, hugger her tighter.
+"They traced Grindelwald's accounts.
+The vaults were under false identities, but one of them was active.
+There is a proxy for a very real person."
+
+"Who is it?"
+31302
