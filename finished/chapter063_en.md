@@ -888,4 +888,84 @@ The vaults were under false identities, but one of them was active.
 There is a proxy for a very real person."
 
 "Who is it?"
-31302
+
+"Some Emeline Vance."
+
+"The name rings a bell," Katya whispered, thinking.
+
+"She is a which who belonged to the Order of the Phoenix, along with James, Lily, Alice, and Franck."
+
+"The group that claimed to fight Voldemort?"
+
+"Exactly.
+Alice is contacting her.
+She will be the best one to approach her because of the friendship they had before she was attacked."
+
+Lucius sad down on a chair and looked at Vladmir for a few moments.
+
+"Did you settle all your quarrels?"
+
+"Yes."
+
+"All of them."
+
+"Yes.
+Or at least I hope," Katya sighed.
+
+"Good.
+Sirius would like to see him before he returns to Hogwarts.
+Something about catching up on thirteen years of gifts…"
+
+"We can arrange that.
+Did you know that he asked Amelia if partial memories were accepted by the Wizengamot?"
+
+"Vladmir?"
+
+"Himself.
+He wanted to know if your justice system would ask to see the whole combat to judge the crime."
+
+"Unfortunately, we would.
+So he was the one who sent a succubus to the Ministry.
+She caused riots because of her presence."
+
+"Adina is still young.
+She still doesn't control her charm well enough…"
+
+Lucius snickered as he remembered the sudden passion of his fellow citizens when the Russian succubus had appeared.
+He was in his office hiding from journalists.
+He had been harrassed for days because of his liaison with Katya, which he was angry about.
+To do the right thing, he had sued Rita Skeeter for invasion of privacy, but the harm was already done…
+To see the mess that the succubus had started from the window of his office had taken his mind off things.
+
+Katya raised her head to look into her fiance's grey eyes.
+He looked at her for a few seconds before smiling.
+
+"If I propose an evening of reading in the library, you…"
+
+"… refuse to stay with Vlad."
+
+"The library is on the other side of the corridor.
+You can place a children surveillance charm and just rest.
+You are still convalescing…"
+
+They held each other's gaze before Katya relented.
+Lucius cast a spell that he had often used on his turbulent son, a little smile on his lips, before dragging Katya towards a settee in the library.
+
+"Why were you smiling while casting the spell?" Katya eventually asked.
+
+She was lying with her head on Lucius's lap, eyes closed because of the exhaustion, as he was starting to read a book on magical Imperial Russia.
+
+"Draco was a real tearaway when he was a child.
+I used this spell so many times to make sure he did not get lost in the manor.
+He loved to explore it, and Merlin knows how he hid from the Elves.
+Nanny was ripping her head out…"
+
+"Nanny?"
+
+"His Elf nurse.
+The worst time was when he hid in the dungeons and…"
+
+After a few minutes, Lucius smiled when he noticed that Katya had fallen asleep.
+He quickly transformed a book into a cover that he put over her.
+Then, he played with the young woman's short hair as he started reading again.
+The Kemenovs had a right to rest a bit…
