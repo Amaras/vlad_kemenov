@@ -871,3 +871,23 @@ There had to be a deliberate act to destroy such a powerful magical item.
 "An accident," Kevin sniffed, catching the _Daily Prophet_, delivered like every other day by owl post.
 
 "Ah shit!" he moaned as he read the headline.
+"Vlad didn't you want to buy this rag?"
+
+"I did, why?" the Russian asked, gulping down on a mouthful of tea.
+
+"Because of this!"
+
+> Merlin's descendants study in Hogwarts! by Rita Skeeter
+
+`The bitch,` Vlad hissed.
+`She will sssuffer!`
+
+Luna, who had just passed the door into the Great Hall, skipped towards them as Kevin skimmed the article.
+Whispers were already rising up.
+Kissing the Russian's cheek, she leaned towards him.
+
+"The mosquito is rightly named, inscets are invisible."
+
+A smile stretched Vlad's lips.
+
+"Thanks Luna," he whispered, kissing her back.
